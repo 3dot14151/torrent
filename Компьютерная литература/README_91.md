@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240457.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240364.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240016.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239568.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239516.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239502.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238869.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238646.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237970.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237666.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237538.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237082.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236292.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236277.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_236271.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235988.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235891.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235620.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004/" />
+  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235516.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235175.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234984.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234655.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234611.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234555.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234530.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234422.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062923.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062910.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rob Ciampa, Matt Ciampa, Rich Murphy и др. | YouTube Channels For Dummies. 3r
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062893.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Alexia Mandeville | Video Game Design For Dummies (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062834.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Patrick Marie | Modern Web Cartography. Open Source Map Solutions with OpenStree
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062829.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Raúl Pimienta, Pedro López | Ultimate .NET MAUI Projects. Design and Deploy Cr
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062827.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sreejith Salgunan | Ultimate React Testing with Jest. Build Reliable Web Applica
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062824.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Soumaya Erradi | Web3 Development with Angular. Building Web Applications with B
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062821.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062817.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Stewart Weiss | System Programming in Linux. A Hands-On Introduction (2026) [PDF
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062806.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062804.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062803.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Stacy Cashmore | Beginning Azure Static Web Apps. Building and Deploying Profess
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062802.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ D. Roth, J. Fritz, T. Southwick | Blazor for ASP.NET Web Forms Developers (2023)
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062801.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ed Freitas | Vue 3 Succinctly (2025) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062800.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Joe Attardi | Modern CSS. Master the Key Concepts of CSS for Modern Web Developm
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062798.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Alex Libby | Developing Web Components with Svelte. Building a Library of Reusab
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062797.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bhargav Bachina | Ultimate Full-Stack Web Development with MEVN. Learn From Desi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062796.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Irina Shamaeva | Advanced Styles and Insights with Midjourney. Imagine Beautiful
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062789.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062787.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062785.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Greg Tomsho | Guide to Operating Systems (MindTap Course List). 6th Edition (202
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062784.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062781.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Stack Overflow | Node.js. Самое полное руководство для 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062780.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062779.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062778.jpg" />
 </div>
 
 

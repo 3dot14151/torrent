@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054244.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Christian Ullenboom | Spring Boot 3 and Spring Framework 6. Build Scalable, Mode
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054243.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Numa Dhamani, Maggie Engler | Introduction to Generative AI. Reliable, responsib
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054241.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Danilo Chiarlone | Server-Side WebAssembly. Building portable and secure multi-l
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054240.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Reuven Lerner | Python Workout. 200 ten-minute Exercises. 2nd Edition (2026) [PD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054239.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Jeremy McDowell | Acing the CCNA Exam. Volume 1. Fundamentals and Protocols. Vol
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054154.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Michael Kofler, Bernd Oggl, Sebastian Springer | AI-Assisted Coding. A Practical
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054153.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Alex Soto Bueno, Andrew Block | Red Hat Certified Engineer (RHCE) Ansible Automa
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054152.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Joachim Steinwendner, Roland Schwaiger | Programming Neural Networks with Python
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054151.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Bernd Oggl, Michael Kofler | Docker. Practical Guide for Developers and DevOps T
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054150.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Michael Kofler | Linux. The Comprehensive Guide to Mastering Linux—From Instal
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054149.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Torsten T. Will | C++. The Comprehensive Guide to Mastering Modern C++ from Basi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054148.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Christopher Negus | Linux Bible. 11th Edition (2026) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054147.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Andrew Tanenbaum, Herbert Bos | Modern Operating Systems. 5th Edition (2023) [PD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054142.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Richard Horne | 3D Printing For Dummies. 3rd Edition (2023) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054043.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simpl
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054006.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054005.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, a
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054004.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (20
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054003.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054002.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054001.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054000.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053998.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053997.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Autom
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053996.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power B
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053995.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Josep M. Roig-Fuste | Python for Psychology, Social Sciences, and Education (202
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066283.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chi-Chun Chou, David Wang | Python for Excel Users. A Beginner's Guide. 1st Edit
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066282.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Muhammad Azhar Iqbal | Python for Agriculturists (2025) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066281.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Barry Burd | Java For Dummies. 9th Edition (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066279.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kyran Dale | Data Visualization with Python and JavaScript. Scrape, Clean, Explo
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066277.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aurélien Géron | Hands-On Machine Learning with Scikit-Learn and PyTorch. Conc
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065973.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Nicole Koenigstein | Transformers. The Definitive Guide. Applications Beyond NLP
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065971.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065970.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Mohit Mishra | Executable Files for Linux. Under the Hood of ELFs for Flexible a
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065969.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Kerem Tomak | Learning AutoML. Automating ML Pipelines with AutoGluon, Leading F
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065968.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Dhivya Nagasubramanian | Agentic AI for Engineers. Architecting Goal-Driven Syst
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065967.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nitin Borwankar | Vector Databases. A Practical Introduction. 1st Edition (2026)
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065966.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065965.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Steve Klabnik, Carol Nichols, Chris Krycho | The Rust Programming Language. 3rd 
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065964.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065963.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065962.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065961.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065960.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ James Serra | Deciphering Data Architectures. Choosing Between a Modern Data War
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065959.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Badr Nasslahsen | Spring Security. Effectively secure your web apps, RESTful ser
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065958.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065954.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065952.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tagir Valeev | 100 Java Mistakes and How to Avoid Them (2024) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065951.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065950.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065949.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Bradley L. Jones | C++ For Dummies. 8th Edition (2026) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065948.jpg" />
 </div>
 
 

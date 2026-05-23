@@ -6,7 +6,7 @@
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040017.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039470.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039451.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ ABBYY | ABBYY FineReader 15. Руководство пользователя (20
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039445.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039216.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038295.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038174.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037707.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Patrick Viafore | Robust Python (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037675.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037371.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037317.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Peter Bauer | Adobe Photoshop CC для чайников, 3-е издание (2
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037050.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036816.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036804.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036769.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Doug Lowe | Java All-in-One For Dummies, 7th Edition (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036646.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036640.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036499.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036213.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036087.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035894.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035793.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035648.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Haksun Li, PhD | Numerical Methods Using Kotlin (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035546.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035517.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035420.jpg" />
 </div>
 
 

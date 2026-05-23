@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146484.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146450.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146343.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146318.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146276.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146047.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145626.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Marin Todorov | Modern Concurrency in Swift, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145496.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145455.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145025.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144864.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ David Sandilands | Puppet 8 for DevOps Engineers (2023) [PDF][EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144662.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143837.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143598.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143512.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143307.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143252.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143198.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143164.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142674.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142637.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142469.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141836.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141283.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ James Gale | The Complete Linux Manual / Полное руководство п�
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140730.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140610.jpg" />
 </div>
 
 

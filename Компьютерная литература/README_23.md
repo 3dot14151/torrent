@@ -6,7 +6,7 @@ Apress | Книги по Blender [4 книги] (2009-2020) [PDF, EPUB] [En]
 >>3D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000946.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000774.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dariush Derakhshani | Introducing Autodesk Maya 2013 / Знакомство с A
 >>3D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000109.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999821.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997448.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997347.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997340.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997338.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997196.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996592.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996013.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Jeremy Keith | The Mobile Book by Smashing Magazine [2012] [PDF] [En]
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995754.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995705.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Orin Thomas | Windows Server 2008 R2 Secrets / Секреты Windows Server 200
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994625.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994401.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993868.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SЕО Монстр 2013 [2012] [PDF]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993413.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Russell Barnes (ред.) | Android: Tips, Tricks & Apps (vol.1) / Андроид
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992727.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dave Harfield (ред.) | Андроид: Советы, трюки, прилож
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992669.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mike Wooldridge, Brianna Stuart | Teach Yourself Visually Adobe Photoshop CS6 / 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992557.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991259.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990543.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Willie Pritchett, David De Smet | BackTrack 5 Cookbook / Рецепты BackTrac
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990032.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Room / Элеме
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989761.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989647.jpg" />
 </div>
 
 

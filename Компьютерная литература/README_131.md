@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12087.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11658.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11239.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ STMicroelectronics, Ira | RM0090 Справочное руководство п�
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11124.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11008.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10331.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10198.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9018.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8843.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8117.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7781.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7563.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7365.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7343.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7150.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6989.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6695.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6508.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5075.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5067.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5049.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4834.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4465.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4243.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4215.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4214.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780149.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779605.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779586.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779454.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779319.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778934.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778645.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778621.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778021.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777877.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ No Starch Press | Humble Bundle - Hacking by No Starch Press [13 книг] (2003
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777097.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776664.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776323.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775639.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775566.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Rene Molenaar | How to master. CCNP route [3 книги] (2013) [PDF] [En]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775520.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775510.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774853.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774068.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773830.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Anthony Minessale/Энтони Минессал | FreeSWITCH Cookbook (2012) [PD
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773692.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Anthony Minessale / Энтони Минессал и др.| FreeSWITCH 1.2 (2013
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773683.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772733.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771548.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008/" />
+  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771459.jpg" />
 </div>
 
 

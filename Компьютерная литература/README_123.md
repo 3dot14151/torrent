@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62080.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61761.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61748.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61685.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61657.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61619.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60741.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60696.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60511.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60497.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58196.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56992.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55450.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54936.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54903.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54741.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54723.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54719.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54714.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54649.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54645.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54597.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54471.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54447.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54368.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Brendan Gregg | Systems Performance. Enterprise and the Cloud (2013) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54290.jpg" />
 </div>
 
 

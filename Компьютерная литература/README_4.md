@@ -6,7 +6,7 @@ Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058655.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058654.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Off
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058653.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058652.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058651.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Roshan Gavandi | Building Enterprise-Ready Azure Infrastructure. Learn Security,
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058650.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Vaskaran Sarcar | Python Bootcamp. A Rapid Crash Course Featuring Q&A Sessions, 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058062.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Artur Guja, Marlena Siwiak, Marian Siwiak | Starting Data Analytics with Generat
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058061.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058060.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058031.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Benjamin Bennett Alexander | 50 Days of Data Analysis with Python: The Ultimate 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058030.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058024.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058023.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058022.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058021.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057345.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Greg Wilson | Software Design by Example. A Tool-Based Introduction with Python.
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057343.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057306.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056894.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Ge
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056564.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056563.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056562.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056561.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056560.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056559.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056558.jpg" />
 </div>
 
 

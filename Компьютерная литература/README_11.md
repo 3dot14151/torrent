@@ -6,7 +6,7 @@ Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Ou
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053994.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053993.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Zunaira Babar, Daryus Chandra, Soon Xin Ng и др. | From Classical to Quantum 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053555.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Alex Vasilev | Python by Example (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053554.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Helmut Vonhoegen | Excel. The Comprehensive Guide for Beginners and Power Users 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053541.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Imp
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053540.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053453.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Papercut Limited | Home Networking. Tricks and Tips. 8th Edition (2025) [PDF] [E
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053439.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Papercut Limited | Make Your Own PC. Tricks and Tips. 22nd Edition (2025) [PDF] 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053434.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053355.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053354.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053353.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053352.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053346.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Pam Baker | Generative AI For Dummies (2025) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053345.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053344.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053343.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053342.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Momiao Xiong | Mathematical Foundations of Artificial Intelligence. Basics of Ma
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053328.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Anita Goel | Python Programming. An Object-Oriented Approach (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053327.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Michael D. Smith | Problem Solving with Python. Using Computational Thinking in 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053326.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Papercut Limited | Windows 11 Complete Manual. 15th Edition (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053325.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053321.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053320.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053318.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Papercut Limited | Mac & MacOS Complete Manual. 14th Edition (2022) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053241.jpg" />
 </div>
 
 

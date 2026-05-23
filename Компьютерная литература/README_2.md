@@ -6,7 +6,7 @@ Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062776.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062774.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stack Overflow | HTML5 для профессионалов. Руководств
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062773.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062770.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062769.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Editio
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062768.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062764.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, E
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062763.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062231.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Dawid Borycki | Modern App Deployment with Azure Kubernetes (Developer Reference
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061495.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061494.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061493.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061491.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Paul Deitel, Harvey Deitel | C How to Program. With an introduction to C++. 8 Th
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061490.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ John Paul Mueller, Luca Massaron | Algorithms For Dummies (For Dummies. 2nd Edit
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061489.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061488.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Hunter J. K. Knight | .NET MAUI Fundamentals. Your First Step into Cross-Platfor
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061486.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Stack Overflow | Blender. Самый подробный самоучитель. 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061485.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061478.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Carl Rippon | Learn React with TypeScript. A beginner’s guide to building real
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060909.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hernando Abella | 120 Advanced JavaScript Interview Questions (2024) [PDF, EPUB]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060908.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060904.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060903.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060899.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Pyth
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060761.jpg" />
 </div>
 
 

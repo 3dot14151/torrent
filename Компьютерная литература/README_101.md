@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199569.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199499.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199400.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199398.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199386.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Slobodan Dmitrović | Modern C++ for Absolute Beginners: A Friendly Introduction
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199383.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199352.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kenneth Hess | Practical Linux System Administration: A Guide to Installation, C
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199338.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199316.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199230.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Jennifer Dawe, Matthew Humphries | Make YourOwn Pixel Art (2019) [PDF]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199211.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199160.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199067.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199059.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198959.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006/" />
+  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198913.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ David Tschumperle, и др. | Digital Image Processing with C++ (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198713.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198600.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sulekha AloorRavi | Metaprogramming with Python (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198580.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Qaifi Khan | ReactJS for Jobseekers: The Only Guide You Need to Learn React and 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198495.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198483.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198479.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198365.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198287.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198222.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ David Pine | Learning Blazor. Build Single-Page Apps with WebAssembly and C#. 1s
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055248.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Kevin Moore | Mastering Flutter. Learn to develop Flutter apps for iOS, Android,
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055247.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055246.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Ronald Mak | Software Design for Python Programmers. Principles and patterns (20
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055245.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microse
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055244.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055243.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced De
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055242.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with O
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055241.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation a
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055240.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Scott Tilley | Systems Analysis & Design. 13th Edition (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055235.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Fabrizio Espindola | The Godot Shaders Bible [2 книги] (2025-2026) [PDF] [E
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055234.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055157.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chrissy LeMaire, Brandon Abshire | AI for Everyday IT. Accelerate workplace prod
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055089.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055088.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055087.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055086.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055084.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Peter von Oven | Learning VMware Workstation for Windows. Implementing and Manag
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055082.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055081.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055080.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dan Gookin | Tiny C Projects (2023) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055079.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055078.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Jens Gustedt | Modern C. Covers the C23 standard. 3rd Edition (2025) [PDF, EPUB]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055077.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055076.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Brian Beuken | The Fundamentals of C/C++ Game Programming. 2nd Edition (2026) [P
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055075.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Annegret Junker | Mastering Domain-Driven Design. Collaborative modeling with do
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055073.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201340.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201193.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201121.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201075.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200940.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200894.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200819.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Michele Riva | Real-World Next.js (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200705.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200704.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200522.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200330.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200278.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200221.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200176.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200170.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular App
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200144.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200138.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200129.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200127.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200058.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199960.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199897.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003/" />
+  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199773.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199742.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199687.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199623.jpg" />
 </div>
 
 

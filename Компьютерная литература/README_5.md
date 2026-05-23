@@ -6,7 +6,7 @@ Chris Zetter | Build a Database Server. Learn how real databases work by followi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056557.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developer
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056556.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056555.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Florent Poux | 3D Data Science with Python. Building Accurate Digital Environmen
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056554.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056552.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056551.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056550.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generativ
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056549.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical App
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056548.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Mo
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056547.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056546.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome,
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056545.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Pr
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056544.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Shailendra Kadre, Shailesh Kadre, Subhendu Dey | Mastering Text Analytics. A Han
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056543.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056541.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056540.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056539.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056538.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056534.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056533.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056529.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056528.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056527.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056525.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056524.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056523.jpg" />
 </div>
 
 

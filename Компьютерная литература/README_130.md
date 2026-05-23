@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21370.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21175.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21174.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21173.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20989.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20882.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20870.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20826.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20545.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Joseph Babcock, Raghav Bali | Generative AI with Python and PyTorch: Navigating 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20517.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Williams Asiedu | Mastering Python (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20512.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20432.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Matt St. Onge | The Embedded Linux Security Handbook (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20308.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19919.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ge Cheng | ChatGPT: Principles and Architecture (2025) [PDF, EPUB, MOBI] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19897.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Andrew Freed, Eniko Rozsa, Cari Jacobs | Effective Conversational AI: Chatbots t
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19837.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nigel Poulton | Quick Start Kubernetes (2025) [PDF, EPUB, MOBI] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19801.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19798.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Douglas Comer | Operating System Design: The Xinu Approach. 3rd Edition (2025) [
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19784.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Yan Jia, Zhaoquan Gu, Aiping Li et al. (eds.) | MDATA Cognitive Model: Theory an
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19760.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18980.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18854.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17461.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16390.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15295.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13086.jpg" />
 </div>
 
 

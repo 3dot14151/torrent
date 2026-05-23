@@ -6,7 +6,7 @@ Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Autom
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060760.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rich Yonts | 100 C++ Mistakes and How to Avoid Them (2025) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060759.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Tobias Scheible | Hacking Hardware. The Practical Guide to Hands-On Hardware Pen
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060758.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060757.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Dan Gookin | PCs & Laptops For Dummies (2025) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060755.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060754.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060752.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060748.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059669.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059668.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059667.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059666.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ganeshkumar Patil | Django REST APIs Demystified. Simplifying API Development wi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059665.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jason W. Eckert, triOS College | CompTIA Linux+ and LPIC-1 Guide to Linux Certif
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059664.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ John Schwartzman | Assembly Language Reimagined. Programming the Intel x64 Micro
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059663.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Bert Gollnick | PyTorch. The Practical Guide to Building, Training, and Deployin
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059662.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Jason Hodson | Applied Machine Learning. A Practical Guide to Preparing Data, Se
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059661.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059660.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Shantanu Baruah, N. Baruah | Generative AI for Full-Stack Development. AI Empowe
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059564.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Fottiniya | Промпт-инженер текстовых моделей ИИ. 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059562.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059551.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059090.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058953.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058946.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058939.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Ex
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058656.jpg" />
 </div>
 
 

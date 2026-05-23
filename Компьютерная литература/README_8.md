@@ -6,7 +6,7 @@ Jerome Gotangco, Luca Berton | Red Hat Enterprise Linux 9 for SysAdmins. A techn
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055072.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055071.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055070.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Marco Peixeiro | Time Series Forecasting Using Foundation Models (2026) [PDF] [E
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055069.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Joseph Schmuller | Statistical Analysis with Python For Dummies. 1st Edition (20
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055068.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Nicole Koenigstein | Transformers in Action (2026) [PDF, EPUB] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055067.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055066.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055065.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055064.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Alan Simpson | Python Automation For Dummies (2026) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055059.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Chenyang Shi | Mastering Algorithms with Python. A Practical Approach to Problem
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055058.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Abi Aryan | LLMOps. Managing Large Language Models in Production (2025) [PDF, EP
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055057.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Mayo Oshin, Nuno Campos | Learning LangChain. Building AI and LLM Applications w
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055056.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Liz Rice | Container Security. Fundamental Technology Concepts That Protect Clou
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055055.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Bill Lubanovic | Introducing Python. Modern Computing in Simple Packages. 3rd Ed
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055054.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055053.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054882.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054879.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054872.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Juan Pablo Buritica, James Turnbull | Engineering Leadership. The Hard Parts: Na
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054613.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Wei Qi Yan | Robotic Vision. From Deep Learning to Autonomous Systems (Advances 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054612.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Shane Brubaker | Bioinformatics with Python Cookbook. 4th Edition (2025) [PDF, E
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054307.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054303.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054302.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054301.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Pallavi Sapkale, Shilpa Mehta, S. Balamurugan | Quantum Computing and Machine Le
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054300.jpg" />
 </div>
 
 

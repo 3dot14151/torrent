@@ -7,7 +7,7 @@ Bjarne Stroustrup | A Tour of C++. Second Edition (2018) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066990.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066989.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ John M. Shea | Linear Algebra for Data Science with Python (Chapman & Hall/CRC T
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066987.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Morton John Canty | Image Analysis, Classification and Change Detection in Remot
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066986.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Brindha Priyadarshini Jeyaraman | Large Language Models Ops for Finance. A Pract
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066968.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mike Amundsen | RESTful Web API Patterns and Practices Cookbook. Connecting and 
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066935.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066763.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Jonah Carrio Andersson | Learning Microsoft Azure. Cloud Computing and Developme
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066621.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ A. Isaiah, K. Nissen | OpenTelemetry For Dummies (2026) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066438.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Blake Rayfield | Applied Math with Python. Solve Real-World Problems with Python
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066436.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066435.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Irena Cronin | Building and Training Generative AI Models. A Practical Guide to 
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066434.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ David Tuffley | Beyond Coding. The Complete Guide to IT Soft Skills (2025) [PDF,
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066432.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Raymond J. Madachy | What Every Engineer Should Know About Python. 1st Edition (
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066384.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066362.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066360.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066359.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066358.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066357.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Ahmed El-Deeb | Beyond the QA Interview. Master Quality Assurance and Build a So
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066354.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066353.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066352.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066309.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066308.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066307.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066306.jpg" />
 </div>
 
 

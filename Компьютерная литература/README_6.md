@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056320.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jennifer Robbins | Learning Web Design. A Beginner's Guide to HTML, CSS, JavaScr
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Paul McFedries | Build a Website with ChatGPT. No coding experience necessary (2
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056289.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Yohan J. Rodriguez | The C# and .NET Interview Compendium. 700+ Questions and Co
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056154.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056153.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056152.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056151.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Tom Graves, Slade Beard | Doing Enterprise-Architecture. A Maturity-Model Guide 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056150.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Julian de Ruiter, Ismael Cabral, Kris Geusebroek и др. | Data Pipelines with 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055903.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Jon Emch, Diana Muresan, Travis Ormsby | Getting to Know ArcGIS Enterprise (2025
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055902.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Baihan Lin | Privacy and Security for Large Language Models. Hands-On Privacy-Pr
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055898.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Tom Taulli | AWS Certified Cloud Practitioner (CLF-C02) Study Guide. In-Depth Ex
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055896.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Shubham Jain | Ultimate Next.js for Modern Web Applications. Master Modern Web D
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055895.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Daniel Gomez Blanco | Practical OpenTelemetry. Adopting Open Observability Stand
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055894.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Yvonne Wilson, Abhishek Hingnikar | Solving Identity Management in Modern Applic
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055892.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Jeremy Gibson Bond | Introduction to Game Design, Prototyping, and Development. 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055891.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Milecia McGregor | Full Stack JavaScript Strategies. The Hidden Parts Every Mid-
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055890.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oswald Campesato | Transformer, BERT, and GPT. Including ChatGPT and Prompt Engi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055889.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Sergio Pereira | Generative AI for Software Development. Building Software Faste
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055887.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055879.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055816.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Neelam Koshiya, Jing Ning | AWS Solutions Architect - Associate Certification Gu
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055452.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055451.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055450.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Chad Sanderson, Mark Freeman, B. E. Schmidt | Data Contracts. Developing Product
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055449.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Nathaniel Schutta, Dan Vega | Fundamentals of Software Engineering. From Coder t
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055249.jpg" />
 </div>
 
 

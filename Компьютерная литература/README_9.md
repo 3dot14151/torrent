@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pau McFedries | Microsoft Excel Formulas and Functions (Office 2021 and Microsof
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054297.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jaewoong Eum | Practical Kotlin Deep Dive. Unlocking the 'How' and 'Why' behind 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054290.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions fo
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054288.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054287.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054285.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054282.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through busin
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054281.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Lee Ambrosius | AutoCAD & AutoCAD LT All-in-One For Dummies. 2nd Edition (2026) 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054279.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054278.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the pote
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054277.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPU
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054276.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Inte
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054275.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054274.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054273.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) 
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054272.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054271.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [P
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054270.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054269.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054268.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Daniel J. Barrett | Responsible Software Engineering. With Real-World Case Studi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054251.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054250.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mark Liu | Build a Text-to-Image Generator (from Scratch). With transformers and
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054248.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sanath Raj B Narayan, Nitin Agarwal | Mastering LangChain. A Comprehensive Guide
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054247.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Chien-Lung Kao | CPython. A Complete Guide to CPython's Architecture and Perform
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054246.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Giovanni Volpe, Benjamin Midtvedt, Jesus Pineda и др. | Deep Learning Crash C
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054245.jpg" />
 </div>
 
 

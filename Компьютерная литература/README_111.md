@@ -6,7 +6,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171295.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171172.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171158.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171141.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171109.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170976.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Gary Bradley | Mastering Adobe Photoshop 2026 (2025) [PDF] [EN]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170959.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170941.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170887.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170881.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170815.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170793.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170352.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170178.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169901.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169896.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169631.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169539.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169431.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169428.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169331.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169076.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169033.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168942.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002/" />
+  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168817.jpg" />
 </div>
 
 
