@@ -1,216 +1,3 @@
-###  Публикация: 1853887   (1056996) от 15.02.2026
-
-Coolmuster Android Assistant 6.0.112 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Coolmuster Android Assistant — программа предназначенная для резервного копирования данных c Android устройств на компьютер. Позволяет синхронизировать каталоги, редактировать содержимое каталогов, сохранять и удалять файлы. Поддержка всех типов Android устройств, в том числе: HTC, Samsung, Motorola, Sony, ZTE, LG, HUAWEI, Dell и других. Поддержка передачи контактов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0A4AF99FF53C4A4EE10F8894EC01453C680EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853961   (1056988) от 15.02.2026
-
-Far Manager 3.0.6644 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC07CD4655BCBB9392D8BA65A4603849FE57DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854012   (1056962) от 15.02.2026
-
-CrystalDiskInfo 9.8.0 Final [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3743FF716E2D7F815713BE01282A5BD08DD6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853791   (1056956) от 15.02.2026
-
-LocalSend v1.17.0  + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-LocalSend — это приложение с открытым исходным кодом для обмена файлами и сообщениями между находящимися поблизости устройствами с использованием локальной сети Wi-Fi.
-Связь между устройствами полностью зашифрована сквозным шифрованием через HTTPS.
-Интернет не требуется. Без отслеживания. Без рекламы.
-В настоящее время это приложение доступно для Android, iOS, macOS, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F27C5C7470538123C93A2495544A82D216BF6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853510   (1056898) от 13.02.2026
-
-TechSmith Camtasia 26.0.3 Build 1535 [Multi]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Camtasia Studio – утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели.
-Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI.
-Сделанное при помощи программы видео можно экспортировать в один из поддерживаемых (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D01DE9D0075FD1C2F2AFBA97FCC96F031E6A3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853494   (1056854) от 13.02.2026
-
-WinRAR 7.20 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D305A8B87BDE97B7E566B962FB4C6309BB918B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853501   (1056852) от 13.02.2026
-
-RAM Saver Professional 26.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B08C0D82C2E2AE3134074007E9CABDF71FCA09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853612   (1056740) от 14.02.2026
-
-Google Chrome 145.0.7632.76 Stable + Enterprise [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C8F2E68D77AD8714022B6A6D1C987828E50CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853614   (1056739) от 14.02.2026
 
 Vivaldi 7.8.3925.66 include standalone [Multi/Ru]
@@ -219,7 +6,7 @@ Vivaldi 7.8.3925.66 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056739.jpg" />
 </div>
 
 
@@ -245,7 +32,7 @@ MediaHuman YouTube Downloader 3.9.18 (1002) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056643.jpg" />
 </div>
 
 
@@ -271,7 +58,7 @@ Adobe Acrobat Pro 2025.001.21208 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056642.jpg" />
 </div>
 
 
@@ -297,7 +84,7 @@ The Bat! Professional 12.0.3.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056640.jpg" />
 </div>
 
 
@@ -323,7 +110,7 @@ GPU-Z 2.69.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056602.jpg" />
 </div>
 
 
@@ -349,7 +136,7 @@ CPU Temp 1.9.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056596.jpg" />
 </div>
 
 
@@ -375,7 +162,7 @@ Opera One 127.0.5778.64 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056583.jpg" />
 </div>
 
 
@@ -401,7 +188,7 @@ MediaHuman YouTube Downloader 3.9.18 (1202) (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056542.jpg" />
 </div>
 
 
@@ -427,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056515.jpg" />
 </div>
 
 
@@ -453,7 +240,7 @@ Adobe Acrobat Pro 2025.001.21208.0 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056504.jpg" />
 </div>
 
 
@@ -479,7 +266,7 @@ IObit Uninstaller Pro 15.3.0.1 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056501.jpg" />
 </div>
 
 
@@ -505,7 +292,7 @@ Wondershare PDFelement Pro 12.1.11.4032 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056492.jpg" />
 </div>
 
 
@@ -531,7 +318,7 @@ MITorrent Client 0.1.3 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056466.jpg" />
 </div>
 
 
@@ -559,7 +346,7 @@ Google Chrome 145.0.7632.68 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056462.jpg" />
 </div>
 
 
@@ -585,7 +372,7 @@ CPUID HWMonitor 1.62 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1056453.jpg" />
 </div>
 
 
@@ -611,7 +398,7 @@ TechSmith SnagIt 2026.0.1 Build 9849 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056449.jpg" />
 </div>
 
 
@@ -637,7 +424,7 @@ OpenVPN 2.7.0 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056446.jpg" />
 </div>
 
 
@@ -663,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056411.jpg" />
 </div>
 
 
@@ -674,6 +461,214 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553A7A71E10A3B9A4B4BD0E144472D66E7D76218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853190   (1056409) от 12.02.2026
+
+4K Video Downloader+ 26.0.3.0285 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056409.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCFF2939D04DE312F0EAD000F9160B21DFEE90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853133   (1056403) от 12.02.2026
+
+KMS Tools Portable by Ratiborus 11.02.2026 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1056403.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA58EF2D929C79CFEF373DE49FCD39EDD3E51B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853223   (1056399) от 12.02.2026
+
+Fast Screen Recorder 2.1.0.18 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Screen Recorder — это программное обеспечение для записи действий на экране вашего компьютера, таких как важная видеоконференция, видеоуроки, образовательная деятельность. Если вы геймер, вы можете записывать все моменты своей игры, в которые вы играете, после чего вы можете поделиться ими с друзьями.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17E907DFA5C9C21A15DD6F7FB9B2593AC30FF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853227   (1056387) от 12.02.2026
+
+4K Video Downloader+ 26.0.3.0285 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056387.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC076A79B3783810D2BACB5245D6B5125C3DBA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853228   (1056386) от 12.02.2026
+
+MediaHuman YouTube Downloader 3.9.18 (0902) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056386.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846128BCC445A542184AFD177146CDCA4C073D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853229   (1056385) от 12.02.2026
+
+Glary Utilities Pro 6.38.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D393B24F88DFA15F3786B1A0070080BE9BF874F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853272   (1056364) от 12.02.2026
+
+WinTools.net Premium 26.2.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056364.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3EBC2E708810DAAE5C6AE115CA688E3A9AF4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853294   (1056362) от 12.02.2026
+
+Office Tool Plus 11.0.27.0 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tool Plus - функциональная программа для работы с Office от компании Microsoft. Позволит вам выполнить модернизацию текущего офиса, допустим изменить канал обновления, если есть желание возможно удалить лишние языковые пакеты, можно сам офис полностью удалить из системы. Плюс у вас не будет больше проблем с активацией, теперь максимально легко установить ключ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E53001B7068D9B926355C181D2670DD4ED743E
 ```
 
 https://mybot314.ru/tekegram_catalog/

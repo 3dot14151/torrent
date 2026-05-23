@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20433.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20424.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20422.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20399.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20353.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20352.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20347.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20336.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20329.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20321.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20305.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20299.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20284.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20249.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20248.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20247.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20231.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20229.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20221.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20220.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20219.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20150.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20149.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001/" />
+  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20148.jpg" />
 </div>
 
 

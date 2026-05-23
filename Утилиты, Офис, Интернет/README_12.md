@@ -6,7 +6,7 @@ Algorius Net Viewer 2026.3.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067673.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Jutoh 3.30.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067668.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WinCatalog 2026.1.1.424 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067663.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Windows Manager 2.3.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067661.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ XYplorer 28.30.0400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067660.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mirillis Action! 4.48.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067657.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Chromium 147.0.7727.138 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067655.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ PowerISO 9.3 RePack (& Portable) by elchupacabra (DC 2026.04.20) [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067651.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ WinRAR 7.21 Final RePack by smvpvl [Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067650.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AnyBurn 6.8 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067645.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Iperius Backup Full 8.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067642.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067629.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Acrobat Pro 2026.001.21529 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067626.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ NeuroShift AI 1.0.0 Portable [Ru] (авторская раздача)
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067624.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Auslogics Disk Defrag Pro 12.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067623.jpg" />
 </div>
 
 
@@ -395,32 +395,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868473   (1067621) от 30.04.2026
-
-CCleaner 6.40.11562 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38C5124C07BECCAFDF4826292D4657392522E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868480   (1067619) от 30.04.2026
 
 Auslogics Duplicate File Finder 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -429,7 +403,7 @@ Auslogics Duplicate File Finder 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067619.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ Adobe Acrobat Pro 2026.001.21529 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067618.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ MAX Desktop 26.15.1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067617.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ Bulk Image Downloader 6.63.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067616.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ WinScan2PDF 9.69 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067615.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ High-Logic FontCreator 16.0.0.3060 Portable by 7997 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067613.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ IObit Unlocker 1.3.0.12 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067599.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ iDownerGo 10.15.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067593.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ OpenVPN 2.7.3 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067570.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ ChrisPC VideoTube Downloader Pro 15.26.0430 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067567.jpg" />
 </div>
 
 
@@ -678,6 +652,32 @@ ChrisPC VideoTube Downloader Pro — это мощная программа с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5607E9D242D7DA8616DA1E3461B733EA2D16B5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868572   (1067551) от 01.05.2026
+
+ShareX 20.0.4 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067551.jpg" />
+</div>
+
+
+###  Подробнее
+
+ShareX - программа для снятия снимков и видеозахвата экрана. Утилита скрывает в себе кучу функций, она умеет создавать как скриншоты всего экрана, так и снимки выделенных областей экрана, причем помимо традиционной прямоугольной области можно выделять и различные геометрические фигуры, в том числе и произвольной формы. После создания снимка Вы можете задать ряд операций, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FAED7588A5C77D1E48B6C7E965618F8E0E18E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

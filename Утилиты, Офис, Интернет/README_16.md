@@ -1,55 +1,3 @@
-###  Публикация: 1867678   (1066832) от 26.04.2026
-
-DISMTools 0.7.3.26042 + Portable [Multi]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-DISMTools — это программа с удобным графическим интерфейсом для работы с DISM, которая позволяет управлять WIM-образами Windows и решать множество других задач.Язык интерфейса: Английский, другие (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225C6957168D430ECE2F45EFF311B2600378B145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867153   (1066827) от 
-
-MAX Desktop 26.14.0 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D106930177C2457F466F8BE0EAFD2248CF2ECA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867177   (1066807) от 
 
 PDF24 Creator 11.30.1 (Win 10-11) [Multi/Ru]
@@ -58,7 +6,7 @@ PDF24 Creator 11.30.1 (Win 10-11) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066807.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ AB Download Manager 1.8.8 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066760.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ Chromium 147.0.7727.117 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066759.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ Kudu 1.36.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066758.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ IObit Driver Booster Pro 13.4.0.234  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066747.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ Floorp Browser 12.12.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066736.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ IObit Driver Booster Pro 13.4.0.234 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066733.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ PDF-XChange Editor Plus 10.8.5.410 + Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066723.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Opera One 130.0.5847.92 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066713.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ AOMEI Backupper Technician Plus 8.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066708.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ Atlantis Word Processor 5.0.2.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066702.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ Aiseesoft Burnova 1.5.56 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066701.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ Glary Utilities Pro 6.41.0.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066699.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ UsbToolbox 1.2 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066697.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ WinTools.net Premium 26.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066695.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Waterfox 6.6.12 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066689.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ Sumatra PDF 3.7.18428 Pre-Release + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066688.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066681.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ FileZilla 3.70.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066677.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ IObit Driver Booster Pro 13.4.0.234 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066663.jpg" />
 </div>
 
 
@@ -586,7 +534,7 @@ PDF-XChange PRO 10.8.5.410 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066660.jpg" />
 </div>
 
 
@@ -612,7 +560,7 @@ Adobe Acrobat Pro 2026.001.21483 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066657.jpg" />
 </div>
 
 
@@ -638,7 +586,7 @@ Telegram Desktop 6.7.8 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066653.jpg" />
 </div>
 
 
@@ -666,7 +614,7 @@ Google Chrome 147.0.7727.117 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066625.jpg" />
 </div>
 
 
@@ -677,6 +625,58 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:799CF67C92D04E7E60B163062D622A4F2E610478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867066   (1066624) от 
+
+Google Chrome 147.0.7727.117 Portable by Cento8 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4595325C0B6A16B95D572FE18F6759FE30C6EF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867067   (1066623) от 
+
+Brave Browser 1.89.143 Portable by Cento8 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303798FD64BC92DFDBF0929815E718BB16D5BF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

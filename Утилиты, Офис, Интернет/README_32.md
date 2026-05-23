@@ -1,136 +1,3 @@
-###  Публикация: 1863554   (1063396) от 05.04.2026
-
-Text Edit Plus 15.8 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Text Edit Plus — это простой, но мощный текстовый редактор с полезными функциями. Это легкий инструмент, который позволяет пользователям легко создавать новые текстовые документы или изменять существующие. Приложение разработано как альтернатива Блокноту, предлагая более широкий набор функций.
-
-Программное обеспечение представляет собой редактор общего назначения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB245FB86C20C4AA52F4FE17AB31C8956E7D24BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863562   (1063377) от 05.04.2026
-
-IconTo Pro 7.6 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая позволяет пользователю с легкостью сменить значок папки, раздела диска и типов файлов или сразу группы папок или разделов на любую, которую Вы укажете (ICO, PNG, JPG, DLL и др.), эти значки можно выбрать из своей коллекции, либо из поставляемых вместе с программой. Для удобства пользования программой, встроена пошаговая инструкция, которая показывает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D33241239525A8D23F41F175DD5E61B577DED16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863574   (1063370) от 05.04.2026
-
-ASCOMP BackUp Maker Pro 8.404 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BackUp Maker может создать резервную копию любой папки на жестком диске. Если же из этой папки нужно скопировать только конкретные файлы, то можно воспользоваться фильтром файлов, который позволит указать, какие типы файлов должны, а какие не должны попасть в бэкап. Можно также установить лимит на размер файлов.
-Программа может сжимать копируемые данные в архивы. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A2FB22C2E9E6A324154E58B8B1BC4345F085F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863576   (1063369) от 05.04.2026
-
-WinCHM Pro 5.57 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-WinCHM - небольшая утилита для создания файлов помощи, книг или журналов в формате HTML, CHM, Web help, PDF и Word файлов. Для работы в программе не обязательно обладать знаниями HTML, можно писать и редактировать текст так же как вы делаете это в Word, редактируя уже готовые документы CHM или создавая свои. Имеется визуальный дизайнер CHM и возможность редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBCBB1F8F166038C51797B73CF65B52E80A9663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863629   (1063346) от 05.04.2026
-
-Soft Organizer Pro 10.36 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9C7473C8E9C759BB22C3C5C3C9A953574FBEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863680   (1063311) от 05.04.2026
 
 MediaHuman YouTube to MP3 Converter 3.9.19 (1803) [Multi/Ru]
@@ -139,7 +6,7 @@ MediaHuman YouTube to MP3 Converter 3.9.19 (1803) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063311.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ Foxit PDF Editor Pro Subscription 2026.1.0.36452 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063301.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ Core Temp 1.20 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063283.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ MediaHuman YouTube Downloader 3.9.19 (1803) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063275.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ MediaHuman YouTube to MP3 3.9.19 (1803) RePack (& Portable) by elchupacabra [Mul
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063273.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ HEU KMS Activator 63.3.3 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063266.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ TechSmith Snagit 26.1.1 build 10472 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063241.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ Runtime RAID Recovery 4.05 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063233.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ FolderMill 5.6 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063230.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ FreeTube 0.24.0 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063222.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ Display Driver Uninstaller 18.1.5.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063220.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ Kudu 1.34.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063218.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ WinBin2Iso 6.71 Build 001 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063214.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ Sumatra PDF 3.7.18131 Prerelease + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063212.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ PeaZip 11.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063208.jpg" />
 </div>
 
 
@@ -536,7 +403,7 @@ Process Lasso Pro 18.0.0.68 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063190.jpg" />
 </div>
 
 
@@ -562,7 +429,7 @@ Ventoy 1.1.11 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063185.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ Just Manager 1.0.0 Alpha 1 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063179.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ Firefox Browser 149.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063168.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ Sumatra PDF 3.6.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063162.jpg" />
 </div>
 
 
@@ -669,7 +536,7 @@ FolderSizes Enterprise 10.0.36 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063142.jpg" />
 </div>
 
 
@@ -680,6 +547,139 @@ FolderSizes Enterprise 10.0.36 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9FDC9C415521C16D3287B86E23CF460A718C94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863929   (1063140) от 06.04.2026
+
+Компактс 2.0 - сократитель ссылок, генератор UTM меток и конвертор текста [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компактс — это мощный и удобный инструмент для создания коротких ссылок, создания UTM меток и конвертации текста из русского (кириллического) в английский (латиница) с полноценной системой аналитики переходов и панелью управления.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0719191E15B6FD504E7CD7DA3413D6FBA4154D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863960   (1063115) от 07.04.2026
+
+Winslopr 26.04.04 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winslopr (Windows Slop Remover), ранее известный как Winslop, — это легковесный инструмент, который помогает устранить ненужные элементы в Windows 11.
+
+Вместо того чтобы блуждать по настройкам Windows или запускать сложные скрипты PowerShell, приложение Winslopr предлагает лаконичный визуальный интерфейс, благодаря которому удаление ненужных программ становится доступным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56D9A466F291F9CE21A1904749B930DD9B4CF8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863985   (1063107) от 07.04.2026
+
+Joplin 3.5.13 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joplin - это бесплатное приложение с открытым исходным кодом для создания заметок и дел, которое может обрабатывать большое количество заметок, организованных в блокноты. Заметки доступны для поиска, их можно копировать, помечать и изменять либо непосредственно из приложений, либо из вашего собственного текстового редактора. Заметки в формате Markdown.
+Заметки, экспортированные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F20B3D84280613346E887B1043AC1A8A8ECC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863989   (1063105) от 07.04.2026
+
+TechSmith SnagIt 2026.1.1 build 10472 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snagit предлагает неограниченные возможности для захвата изображений - экран целиком, одно или сразу несколько окон и графических объектов (значки, экранные кнопки, панели, меню и т.д.), области произвольной или сложной формы (многоугольник, эллипс, прямоугольник со скругленными углами), полноэкранные окна DOS-программ и окна приложений DirectX (игры, видеопроигрыватели), (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A678ED6ED25869B9275E10AB9239350DFE59ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863991   (1063103) от 07.04.2026
+
+Alt SwitchER 24.9 Portable [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alt SwitchER - программа для автоматического исправления "раскладки" слова (с возможностью отключения, назначения программ-исключений), а также авто-обучением и возможностью "ручного" добавления слов в пользовательский словарь и словарь исключений. Alt SwitchER прекрасная альтернатива таким программам, как Punto switcher и Caramba Switcher. В (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647D268EDD588C6631D0E57CA51E86FD0D059F2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

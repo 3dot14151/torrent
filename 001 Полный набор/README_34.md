@@ -1,57 +1,3 @@
-###  Публикация: 1871120   (1069314) от 
-
-Topaz Photo 1.6.0 RePack by KpoJIuK [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo - это интеллектуальное программное обеспечение для улучшения изображения, которое позволяет вам заострить детали, восстановить фокус и регулировать уровни на каждом снимке. Выбирайте из 11 инструментов на основе ИИ для совершенствования своих изображений, или начните Вашу работу при установках по умолчанию (Автопилот).Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBFAF1F851469E37A87667B415ED25D3A85C18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871123   (1069313) от 
-
-GiliSoft Formathor 8.5.0 [Multi]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-GiliSoft Formathor — это автономный универсальный конвертер файлов для Windows, объединяющий в одном рабочем процессе редактор PDF, конвертер PDF, конвертер PPT, конвертер Word, конвертер электронных книг, конвертер Excel и конвертер изображений.
-
-Он помогает командам и отдельным пользователям конвертировать файлы PDF, Office, электронные книги, изображения и файлы, (   Читать дальше...   )Язык интерфейса: Английский и Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEF4F82C123CEA6812D68DBC266DD5402BFF217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871125   (1069312) от 
 
 GerbView 11.37.0.646 [En]
@@ -60,7 +6,7 @@ GerbView 11.37.0.646 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069312.jpg" />
 </div>
 
 
@@ -88,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069311.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069310.jpg" />
 </div>
 
 
@@ -142,7 +88,7 @@ NetBalancer 12.6.1.4290 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069309.jpg" />
 </div>
 
 
@@ -169,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069308.jpg" />
 </div>
 
 
@@ -197,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069307.jpg" />
 </div>
 
 
@@ -225,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069306.jpg" />
 </div>
 
 
@@ -251,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069305.jpg" />
 </div>
 
 
@@ -277,7 +223,7 @@ IrfanView 4.75 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069304.jpg" />
 </div>
 
 
@@ -303,7 +249,7 @@ All About PDF Standart / Advanced Build 2042 + Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069303.jpg" />
 </div>
 
 
@@ -331,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069302.jpg" />
 </div>
 
 
@@ -358,7 +304,7 @@ TubeDownload Pro 7.3.10 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069301.jpg" />
 </div>
 
 
@@ -384,7 +330,7 @@ Barenaked Ladies - Disc One: All Their Greatest Hits (1991-2001) (2001) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069300.jpg" />
 </div>
 
 
@@ -413,7 +359,7 @@ VA - Armin van Buuren - A State Of Trance 1277 (2026) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069299.jpg" />
 </div>
 
 
@@ -442,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069298.jpg" />
 </div>
 
 
@@ -468,7 +414,7 @@ Josh Groban - Compilation (2001-2026) [MP3|320 Kbps] <Vocal, Crossover, Operatic
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069297.jpg" />
 </div>
 
 
@@ -497,7 +443,7 @@ Spiritual Gaia - Compilation (2026) [MP3|320 Kbps] <Easy Listening, Meditation, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069296.jpg" />
 </div>
 
 
@@ -526,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069295.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ Sandra best (1984-2012) [MP3|320 Kbps] <pop,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069294.jpg" />
 </div>
 
 
@@ -584,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069293.jpg" />
 </div>
 
 
@@ -610,7 +556,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Произво�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069292.jpg" />
 </div>
 
 
@@ -637,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069291.jpg" />
 </div>
 
 
@@ -664,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069290.jpg" />
 </div>
 
 
@@ -690,7 +636,7 @@ Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Or
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069289.jpg" />
 </div>
 
 
@@ -704,6 +650,58 @@ Medley(   Читать дальше...   )Жанр: PopПродолжитель�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD97BE2684764506F63A972253A481A53188E62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871161   (1069288) от 
+
+Minimal Firewall 2.8.1 Portable [En]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A13F845158F4655C2EDE269C7387DD9F08A3007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871155   (1069287) от 
+
+Vivaldi 7.9.3970.67 include standalone [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9ECD6EF751EFB8E1F5A592FC6AC96A37D1AE7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

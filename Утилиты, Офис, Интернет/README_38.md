@@ -1,161 +1,3 @@
-###  Публикация: 1860831   (1062098) от 07.04.2026
-
-WireSock Secure Connect 3.3.23.1 Beta [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-WireSock Secure Connect - это сложный VPN-клиент WireGuard для Windows, доступный как в командной строке, так и в UI-приложении, предлагающий расширенные возможности, отсутствующие в официальном клиенте WireGuard. Он способствует выборочному туннелированию приложений и исключению конкретных IP-адресов. Разработанный для простоты и удобства использования,Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE687D04A6DBB7AB5E58A24995698B2BC14B0147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860843   (1062090) от 22.03.2026
-
-Zen Browser 1.19.3 beta [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Zen Browser — это новый, ориентированный на конфиденциальность и продуктивность веб-браузер с открытым исходным кодом, основанный на движке Mozilla Firefox. Он сочетает в себе высокую производительность с уникальным интерфейсом, напоминающим Arc Browser, предлагая вертикальные вкладки, разделение экрана и компактный режим для сосредоточенной работы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA533D86D8AC4CE83DF21D4380D0F03E50FE5DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860646   (1062076) от 21.03.2026
-
-AlbusBit NTFS Permissions Auditor Pro 26.3.20 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-NTFS Permissions Auditor сканирует весь файловый сервер и точно показывает, кто и к чему имеет доступ — без необходимости использования скриптов PowerShell.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051F3FB7C84BBB1421B47D962B1A80094EEC9844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860660   (1062066) от 21.03.2026
-
-AppControl 1.1.1.208b [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-AppControl — приложение, представляющее собой диспетчер задач с современным интерфейсом и дополнительными функциями, которые могут оказаться полезными для обычного пользователя, желающего отследить, что именно происходит на его компьютере и управлять этим.
-
-По умолчанию программа добавляется в автозагрузку Windows и отображает значок в области уведомлений, по клику (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE78A05B9969E910E21103B4E4335462AB49E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860698   (1062053) от 21.03.2026
-
-YT Downloader 10.3.0 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EBD58EE3DA7C57068964D9DE94F51A8C1C1A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860716   (1062018) от 22.03.2026
-
-AOMEI Backupper Technician Plus 8.2.0 RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B3AE0B750A66AF88CF7F5809D6161CD1850F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860507   (1061966) от 21.03.2026
 
 Cisdem PDF Converter OCR 3.7.0 [Multi]
@@ -164,7 +6,7 @@ Cisdem PDF Converter OCR 3.7.0 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061966.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ AOMEI Backupper Technician Plus 8.2.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061963.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ AOMEI Backupper Technician Plus 8.2.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061960.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ WinScript 2.1.3 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061955.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ Wondershare PDFelement 12.1.14.4108 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061939.jpg" />
 </div>
 
 
@@ -294,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061938.jpg" />
 </div>
 
 
@@ -320,7 +162,7 @@ OBS Studio 32.1.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061932.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ MyLanViewer 6.7.8 Enterprise + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061923.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061914.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061913.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ TweakNow WinSecret Plus! 8.7.0 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061912.jpg" />
 </div>
 
 
@@ -453,7 +295,7 @@ Stardock Fences 6.20 Business edition [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061845.jpg" />
 </div>
 
 
@@ -481,7 +323,7 @@ WinScan2PDF 9.66 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061836.jpg" />
 </div>
 
 
@@ -508,7 +350,7 @@ Wondershare PDFelement Pro 12.1.14.4108 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061822.jpg" />
 </div>
 
 
@@ -534,7 +376,7 @@ Display Driver Uninstaller 18.1.5.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061814.jpg" />
 </div>
 
 
@@ -560,7 +402,7 @@ AOMEI Backupper Technician Plus 8.2.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061811.jpg" />
 </div>
 
 
@@ -586,7 +428,7 @@ Chromium 146.0.7680.154 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061785.jpg" />
 </div>
 
 
@@ -612,7 +454,7 @@ iDownerGo Video Downloader 10.14.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061777.jpg" />
 </div>
 
 
@@ -638,7 +480,7 @@ By Click Downloader Premium 2.4.30 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061772.jpg" />
 </div>
 
 
@@ -664,7 +506,7 @@ DesktopOK 12.41 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061770.jpg" />
 </div>
 
 
@@ -676,6 +518,166 @@ DesktopOK - это небольшое, но эффективное решени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73DEC646AD46F18734CC21A21EAA21F8C93C0D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860179   (1061769) от 19.03.2026
+
+ShareX 19.0.2 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061769.jpg" />
+</div>
+
+
+###  Подробнее
+
+ShareX - программа для снятия снимков и видеозахвата экрана. Утилита скрывает в себе кучу функций, она умеет создавать как скриншоты всего экрана, так и снимки выделенных областей экрана, причем помимо традиционной прямоугольной области можно выделять и различные геометрические фигуры, в том числе и произвольной формы. После создания снимка Вы можете задать ряд операций, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB29ADCF03BE551B68456D5B5E6C7858890E7817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860186   (1061762) от 19.03.2026
+
+MassTube Ultra 21.5.4.197 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061762.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube Ultra — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFB14892B38A58BA4C97EF6F4E9EEF5C29C434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860199   (1061758) от 20.03.2026
+
+YT Downloader 10.2.9 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061758.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53DD007D9D7E6472BB38A5B03F9302D3810080F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860200   (1061697) от 20.03.2026
+
+Actual Window Manager 8.15.3 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Actual Window Manager - технологически продвинутый программный пакет, состоящий из более чем 50 инновационных инструментов для организации Рабочего Стола Windows, повышающий удобство использования и производительность работы с любыми приложениями Windows. С помощью Actual Window Manager вы сможете организовать рабочую среду для удобного, быстрого и эффективного выполнения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD38B1B0069F6BF9F79461559BAD17FA2A2D83ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860293   (1061692) от 20.03.2026
+
+YT Geek YTDL 12.2.3 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061692.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDL, ранее известный как YT-DL, это простое и удобное в использовании приложение для загрузки видео с YouTube и других сайтов.
+
+Скачивайте видео с YouTube и не только.
+Увеличьте скорость загрузки до 400%.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B74698A16E608F4296C97476620FF38E4406626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860297   (1061690) от 20.03.2026
+
+TweakNow WinSecret Plus! 8.7.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061690.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8F6A6BFEB72081B6499467FC14D567F15BABE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

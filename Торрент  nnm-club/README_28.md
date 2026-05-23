@@ -1,29 +1,3 @@
-###  Публикация: 1870941   (1069477) от 
-
-Журнал | Наша кухня №5 (365) (май 2026) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Основа каждого выпуска - проверенные рецепты блюд с фотографиями. С помощью «Нашей кухни» можно без труда составить меню как на каждый день, так и для праздничного стола. Процесс приготовления блюд превратится в удовольствие!Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F86AD01B10CC5DC98DB993273930392FFB82410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870953   (1069476) от 
 
 Максим Патрушев | Нейродыхание. Активация жизни (2026) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069476.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ ImageGlass 9.5.0.515 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069475.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ Tower 12.1.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069474.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069473.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069472.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Blackmagic Design DaVinci Resolve Studio 21.0 Build 33 beta 3 RePack by KpoJIuK 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069471.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Blades of Fire (2025) [Ru/Multi] (2.0/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069470.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069469.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069468.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069467.jpg" />
 </div>
 
 
@@ -290,32 +264,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871000   (1069466) от 
-
-BluffTitler Ultimate 17.0.0.3 RePack (& Portable) by elchupacabra + Content [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-BluffTitler - программа для создания красивых текстовых 3D эффектов и простейшей мультипликации, применяемых при монтаже видео. Результат можно просматривать в реальном времени с последующим экспортом в картинку или видео-формат. Вся создаваемая анимация состоит из слоев, которые могут модифицироваться независимо.BluffTitler поддерживает большое количество различных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B76A0A9631C818A2EC3E15B202FAF350EFD972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870946   (1069465) от 
 
 VA - Black Hole House Music 05-26 (2025) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
@@ -324,7 +272,7 @@ VA - Black Hole House Music 05-26 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069465.jpg" />
 </div>
 
 
@@ -353,7 +301,7 @@ VA - Black Hole Trance Music 05-26 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069464.jpg" />
 </div>
 
 
@@ -382,7 +330,7 @@ VA - Sound Best Trance Hits 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069463.jpg" />
 </div>
 
 
@@ -411,7 +359,7 @@ VA - Redux 700 Celebration (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069462.jpg" />
 </div>
 
 
@@ -440,7 +388,7 @@ VA - The Unity Mixers – Dance Computer - The Full 1993 Megamix 1 (1993) [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069461.jpg" />
 </div>
 
 
@@ -469,7 +417,7 @@ Affinity Studio 3.2.1.4425 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069460.jpg" />
 </div>
 
 
@@ -495,7 +443,7 @@ MKVToolNix 98.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069459.jpg" />
 </div>
 
 
@@ -521,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069458.jpg" />
 </div>
 
 
@@ -547,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069457.jpg" />
 </div>
 
 
@@ -574,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069456.jpg" />
 </div>
 
 
@@ -600,7 +548,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069455.jpg" />
 </div>
 
 
@@ -626,7 +574,7 @@ Winxvideo AI 4.9 RePack (& Portable) by elchupacabra (DC 2026.05.07) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069454.jpg" />
 </div>
 
 
@@ -653,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069453.jpg" />
 </div>
 
 
@@ -679,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069452.jpg" />
 </div>
 
 
@@ -690,6 +638,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA9C1FD3BC8753538CEEB51BC943651CD0997817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871014   (1069451) от 
+
+PortableApps.com Platform 30.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069451.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
+
+Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F226B721DEE23D1DD605A8EA26C22FDEE99A91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870988   (1069450) от 
+
+Два капитана (2026) WEBRip [H.264] (сезон 4, серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убит сосед Мироновых – крайне неприятный человек, наживший себе кучу врагов. По времени это совпадает с пожаром в доме Кати. Связаны ли эти события? Расследуя прошлое убитого, Катя и Романов выясняют, что несколько лет назад он был присяжным на судебном процессе. Подняв документы, они обнаруживают, что из двенадцати присяжных одиннадцать уже мертвы… Женщина получает (   Читать дальше...   )Производство: Россия / NRG FilmЖанр: детективРежиссер: Денис ЕлеонскийАктеры: Антон Даниленко, Олеся Фаттахова, Валерий Смекалов, Дмитрий Сотниченко, Любовь Германова, Екатерина Седик, Алиса Кот, Константин Новиков, Андрей Добровольский, Илья Крутояров и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492D1009669BF33951AA379C718C6DCE343DB116
 ```
 
 https://mybot314.ru/tekegram_catalog/

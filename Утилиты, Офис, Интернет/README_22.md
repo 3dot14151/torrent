@@ -1,55 +1,3 @@
-###  Публикация: 1865441   (1065188) от 15.04.2026
-
-Adobe Acrobat Pro 2026.001.21431 (x86|x64) Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9267B7495DCB3B9D8678558620E5748C0E65DC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865451   (1065187) от 15.04.2026
-
-Process Lasso Pro 18.0.1.24 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8070CB44C184928AF6978939C85BB7AD8AF10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865454   (1065185) от 15.04.2026
 
 Quick CPU 6.4.1.0 [En]
@@ -58,7 +6,7 @@ Quick CPU 6.4.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065185.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Reg Organizer 9.92 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065182.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Chromium 147.0.7727.56 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065165.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ MobaXterm 26.3 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065161.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ eM Client Pro 10.4.5326 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065160.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ TreeSize Professional 9.7.2.2203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065146.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ GoodSync Enterprise 12.9.27.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065140.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Wondershare PDFelement 12.1.16.4155 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065125.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Adobe Acrobat Reader 2026.001.21411 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065120.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Q-Dir 12.57 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065119.jpg" />
 </div>
 
 
@@ -312,32 +260,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864758   (1065095) от 
-
-Ashampoo Driver Updater 2.5.4.0 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Driver Updater обеспечивает обновления для широкого набора компонентов и устройств от профессиональных, до менее известных брендов. Как только новый драйвер становится доступен, он сразу же добавляется в огромную базу Ashampoo Driver Updater и становится доступен для Вас. Доступно более 400.000 драйверов. Поддерживаются более 150.000 устройств. Максимальная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9575B6CE51686BCE59208F8F1213EC1A054C9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864761   (1065089) от 
 
 Adobe Acrobat Pro 2026.001.21411 RePack by KpoJIuK [Multi/Ru]
@@ -346,7 +268,7 @@ Adobe Acrobat Pro 2026.001.21411 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065089.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065075.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ DLNow Video Downloader 1.55.2026.04.08 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065073.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ eM Client 10.4.5326.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065070.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ FolderSizes Enterprise 10.0.39 RePack (& Portable) by elchupacabra [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065061.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ Wondershare PDFelement Pro 12.1.16.4155 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065059.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ Display Driver Uninstaller 18.1.5.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065057.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ WinScript 2.2.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065028.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 23.03.2026) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065023.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ IObit Smart Defrag Pro 11.3.0.476 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065022.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ Calibre 9.7.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065017.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ Google Earth Pro 7.3.7.1155 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065016.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ Sumatra PDF 3.7.18265 Prerelease + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065014.jpg" />
 </div>
 
 
@@ -670,6 +592,85 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C80A4BF3B22E9788E9E1D6EEF52BFD787533E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864897   (1064995) от 12.04.2026
+
+Geekbench 6.7.0 Pro RePack (& Portable) by elchupacabra [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench - кроссплатформенная программа для проведения тестов производительности процессора. Приложение может быть установлено без особых хлопот на вашем компьютере и вы можете начать тестирование возможностей вашего процессора и всех компонентов системы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EC19B3A03E253317583FC75DFFCBA20E03FA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864913   (1064980) от 12.04.2026
+
+Wondershare PDFelement Pro 12.1.16.4155 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A879DAB50D5A3FCC18627706DE8B11E6F57BF94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864926   (1064975) от 12.04.2026
+
+TweakNow WinSecret Plus! 9.0.0 RePack (& Portable) by elchupacabra [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064975.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624BF4ED5DC2EFD4F247AA35D2C216B05D36D950
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,55 +1,3 @@
-###  Публикация: 1871079   (1069422) от 
-
-SIV (System Information Viewer) 5.87 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D8455FB5D6F8D04FA7A8ECB9E263ADEE986B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871173   (1069421) от 
-
-Убежище / Shelter (2026) BDRip [AV1/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Бывший боец спецотряда MI6 Майкл Мейсон живёт отшельником вместе с псом на одном из небольших уединённых островов Шотландии, скрываясь от своего прошлого. Периодически к нему приплывает на лодке его сослуживец с племянницей Джесси и привозит припасы. Однажды во время шторма лодка переворачивается, дядя девочки погибает, но Майкл успевает спасти Джесси, которая получает (   Читать дальше...   )Производство: Великобритания, США / Black Bear, CineMachine Media WorksЖанр: боевикРежиссер: Рик Роман ВоАктеры: Джейсон Стэйтем, Бодхи Рэй Бретнэк, Билл Найи, Наоми Аки, Селин Бакенс, Дэниэл Мейс, Майкл Шеффер, Анна Крилли, Харриет Уолтер, Евгения КарузоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB09DB8D97CD87A94B1480F4CDE9F6589F7F7BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871174   (1069420) от 
 
 Дуэнья (1978) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069420.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069419.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069418.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069417.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069416.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ WILL: Follow The Light (2026) [Ru/Multi] (Build 23186195) Repack Other s [Suppor
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069413.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085) Repack HardwareMining [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069412.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ PrivWindoze 7.0.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069411.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ HFS: HTTP File Server 3.1.5 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069410.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069409.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069408.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ AIHero, Matt Pocock | Claude Code для настоящих инженеров (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069407.jpg" />
 </div>
 
 
@@ -380,7 +328,7 @@ R&D-лаборатория Devhands, Алексей Белозерский | Lak
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069406.jpg" />
 </div>
 
 
@@ -409,7 +357,7 @@ Hekasoft Backup & Restore 1.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069405.jpg" />
 </div>
 
 
@@ -437,7 +385,7 @@ Password Tech 3.6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069404.jpg" />
 </div>
 
 
@@ -465,7 +413,7 @@ Forza Horizon 6 (2026) [Ru/Multi] (354.221/dlc) Repack SE7EN [Premium Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069403.jpg" />
 </div>
 
 
@@ -491,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069402.jpg" />
 </div>
 
 
@@ -520,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069401.jpg" />
 </div>
 
 
@@ -548,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069400.jpg" />
 </div>
 
 
@@ -576,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069399.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069398.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ VA - Friends of A State Of Trance, Vol. 4 (Mixed by RAM) (2026) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069397.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ Aurum Project - We Still Have Dreams (2025) [MP3|320 Kbps] <Disco, Dance, AI Mus
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069396.jpg" />
 </div>
 
 
@@ -691,7 +639,7 @@ Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069395.jpg" />
 </div>
 
 
@@ -705,6 +653,64 @@ Aurum Project - Wasted Love (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D43F63A4A41E2860B05060618025CEEB4949476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871187   (1069394) от 
+
+Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need Is You (5:29)
+02. Broken Wings (5:16)
+03. Dance With Me Tonight (4:49)
+04. Dancing Like The World Ends At Dawn (3:16)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CC2A0F7D5EA808A21F8F8C9149274750EB514D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871184   (1069393) от 
+
+Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever In Your Eyes (3:42)
+02. Only You My Love (3:39)
+03. Midnight Lover (3:44)
+04. Hope (3:21)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834075BCCC671F524D5651A6A8D13C02F68FB16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

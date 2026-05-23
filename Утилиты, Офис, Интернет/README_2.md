@@ -6,7 +6,7 @@ Text Edit Plus 16.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069804.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Filmex 3.2.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069800.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Icecream PDF Candy Desktop Pro 3.19 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069797.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ High-Logic FontCreator 16.0.0.3064 Portable by 7997 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069789.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ QOwnNotes 26.5.12 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069776.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PulseMonitor 1.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069771.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Quick CPU Pro 6.4.1 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Adobe Acrobat Pro 2026.001.21563 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069749.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Wondershare PDFelement Pro 12.1.18.4212 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069748.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PrivaZer Pro 4.0.122 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069730.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Internet Download Manager 6.42 Build 64 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069726.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AppControl 1.3.0.335b [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069718.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Icecream PDF Editor Pro 3.31 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069716.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Icecream PDF Candy Desktop Pro 3.19 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069715.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Syncovery Premium 11.15.7 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069704.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ WinScript 2.8.0 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069693.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Memtest86+ 8.10 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069691.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Tablacus Explorer 26.5.12 Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069673.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Total Commander 11.57 PowerPack + Portable 2026.05 by SamLab [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069636.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Microsoft Office 2016-2024 Volume Channel [v2408] [16.0.17932.20776] AIO (x86-x6
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069633.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Open Shell (Classic Shell) 4.4.198 + Utility [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069632.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Executor 2.3.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069630.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ USBDeview 3.10 + Portable [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069607.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Fast Downloader 0.8.5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069606.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ HWdetails 1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069598.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ PowerISO 9.4 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069578.jpg" />
 </div>
 
 

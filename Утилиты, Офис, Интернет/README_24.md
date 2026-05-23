@@ -1,81 +1,3 @@
-###  Публикация: 1864507   (1064731) от 
-
-HopToDesk 1.45.20.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-HopToDesk - это бесплатный инструмент для удаленного управления и демонстрации экрана. Легко выполняйте совместное использование экрана, удаленную помощь, передачу файлов и чат с удаленным коллегой.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0885BB137F9C404727AEAA5B1DB7C2BBB628B60E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864528   (1064727) от 
-
-Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.3.7 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C895A7E7A87ED1560E6E7FFF5A39A06FD8311394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864537   (1064726) от 
-
-FileZilla 3.70.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FileZilla - популярный кроссплатформенный FTP клиент для Windows, поддерживает протоколы FTP, FTPS и SFTP, а также включает множество дополнительных функций и параметров передачи данных. Удобный двухпанельный интерфейс позволяет легко загружать и скачивать файлы с удалённого сервера. Дополнительно, FileZilla позволяет искать файлы на FTP сервере, сравнивать каталоги (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B91EB17B076904188A50FA0C04F73216B49091F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864545   (1064724) от 
 
 R-Wipe & Clean 20.0.2555 RePack (& Portable) by elchupacabra [Ru/En]
@@ -84,7 +6,7 @@ R-Wipe & Clean 20.0.2555 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064724.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ Icecream PDF Candy Desktop PRO 3.18 RePack (& Portable) by elchupacabra [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064713.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ AnyDesk 9.7.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064690.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ Process Explorer 17.11 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064689.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ Brave Browser 1.89.132 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064684.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ EF Mailbox Manager 26.04 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064676.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ TurboSFV 11.0.1 [En/De]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064674.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ PDF24 Creator 9.20.0 (Win 7-8) / 11.30.0 (Win 10-11) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064662.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ MassTube Ultra 21.6.0.203 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064643.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ PrivaZer Pro 4.0.120.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064642.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ Quick CPU 6.4.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064614.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ GetDataBack Pro 5.78 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064612.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ Geekbench Pro 6.7.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064610.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ Abelssoft SSD Fresh Plus 2026 15.04.71721 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064607.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ Opera GX 129.0.5823.70 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064602.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ MassTube Ultra 21.6.0.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064598.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ HWiNFO 8.45 Build 5955 Beta Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064595.jpg" />
 </div>
 
 
@@ -533,7 +455,7 @@ FonePaw Screen Recorder 8.8.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064594.jpg" />
 </div>
 
 
@@ -559,7 +481,7 @@ Torrent File Editor 1.0.2 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064593.jpg" />
 </div>
 
 
@@ -585,7 +507,7 @@ JWIZARD Cleaner 1.11.2.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064592.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ Throne (ex. NekoRay / NekoBox) 1.1.2 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064588.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ Vivaldi 7.9.3970.50 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064587.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064584.jpg" />
 </div>
 
 
@@ -679,6 +601,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:235194B5F5BD48A447D1B5E3BCADA95F005F34C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864338   (1064568) от 
+
+OCCT 16.1.8 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342FBB96D874907A28E6E5A4058591F501E5CEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864348   (1064560) от 
+
+Foxit PDF Editor Pro Perpetual 14.0.3.33502 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
+Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
+Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786CFAC821B55E3F2E16557AE0275089FCFF63BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862023   (1064406) от 28.03.2026
+
+SoftPerfect RAM Disk 26.2 RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064406.jpg" />
+</div>
+
+
+###  Подробнее
+
+SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0762479E69FE7FB3D6F5A9D9E2C1FD706C470E
 ```
 
 https://mybot314.ru/tekegram_catalog/

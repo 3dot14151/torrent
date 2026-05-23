@@ -1,55 +1,3 @@
-###  Публикация: 1871083   (1069340) от 
-
-Сущность / The Thing with Feathers (2025) WEB-DL [H.264/1080p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает об иллюстраторе, который после внезапной смерти жены остается один с двумя сыновьями. В процессе переживания горя в их доме появляется таинственный гость — гигантский антропоморфный Ворон. Существо становится для семьи одновременно и мучителем, и своеобразным терапевтом, помогая прожить утрату и обрести новый смысл жизни.Производство: Великобритания / Align, Film Four Ltd., Film i VästЖанр: ужасы, драмаРежиссер: Дилан СаузернАктеры: Бенедикт Камбербэтч, Дэвид Тьюлис, Сэм Спруэлл, Джесси Кейв, Лео Билл, Винетт Робинсон, Гарри Купер, Макс Портер, Тим Плестер, Адам БейзилПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские (forced hardsub)Продолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4256F0C0B9F110DD31AC0DBB9E59443D51C338AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871084   (1069339) от 
-
-Моя собака – космонавт (2026) WEBRip [H.264/1080p]
-
->>Горячие новинки
->>Отечественные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1960 год. В городке у космодрома Байконур, где каждый запуск ракеты озаряет небо мечтами, живёт десятилетний Миша — мальчик со светлой головой, полной космических фантазий. В свой день рождения Миша находит собаку Белку, которая предопределит не только его судьбу, но и напишет новую страницу в истории освоения космоса.Производство: Россия / Централ Партнершип, Инстанция, ZOOM ProductionЖанр: семейный, приключения, комедияРежиссер: Михаил МорсковАктеры: Дмитрий Калихов, Антонина Бойко, Кирилл Зайцев, Ольга Лерман, Павел Ворожцов, Даниил Воробьев, Соня Присс, Степан Девонин, Игорь Коровин, Никита КонкинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5D0949BD0C1B61D6436A1FC3A7AEAA34A6C88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871085   (1069338) от 
 
 Iridio (2026) [Ru/Multi] (1.0) Scene Tenoke
@@ -58,7 +6,7 @@ Iridio (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069338.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069337.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069336.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ TweakNow WinSecret Plus! 9.4.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069335.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069334.jpg" />
 </div>
 
 
@@ -192,7 +140,7 @@ Acid Reign - Daze Of The Week (2026) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069333.jpg" />
 </div>
 
 
@@ -221,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069332.jpg" />
 </div>
 
 
@@ -247,7 +195,7 @@ WaveMetrics Igor Pro 10.02.30040 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069331.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069330.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ Crematory - Greatest Hits (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic M
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069329.jpg" />
 </div>
 
 
@@ -330,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069328.jpg" />
 </div>
 
 
@@ -357,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069327.jpg" />
 </div>
 
 
@@ -383,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069326.jpg" />
 </div>
 
 
@@ -409,7 +357,7 @@ Green Carnation - A Dark Poem Part II: Sanguis (2026) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069325.jpg" />
 </div>
 
 
@@ -438,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069324.jpg" />
 </div>
 
 
@@ -464,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069323.jpg" />
 </div>
 
 
@@ -490,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069322.jpg" />
 </div>
 
 
@@ -516,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069321.jpg" />
 </div>
 
 
@@ -542,7 +490,7 @@ Valor of Man (2026) [Multi] (1.1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069320.jpg" />
 </div>
 
 
@@ -568,7 +516,7 @@ PowerISO 9.4 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069319.jpg" />
 </div>
 
 
@@ -594,7 +542,7 @@ PrivaZer Pro 4.0.122 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069318.jpg" />
 </div>
 
 
@@ -620,7 +568,7 @@ Capture One 23 Enterprise 16.7.8.3529 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069317.jpg" />
 </div>
 
 
@@ -646,7 +594,7 @@ OCCT 16.1.10 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069316.jpg" />
 </div>
 
 
@@ -672,7 +620,7 @@ MAX Desktop 26.16.0 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069315.jpg" />
 </div>
 
 
@@ -683,6 +631,60 @@ MAX Desktop 26.16.0 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0224592087BE5FD86750265657B0780C8EA801ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871120   (1069314) от 
+
+Topaz Photo 1.6.0 RePack by KpoJIuK [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo - это интеллектуальное программное обеспечение для улучшения изображения, которое позволяет вам заострить детали, восстановить фокус и регулировать уровни на каждом снимке. Выбирайте из 11 инструментов на основе ИИ для совершенствования своих изображений, или начните Вашу работу при установках по умолчанию (Автопилот).Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBFAF1F851469E37A87667B415ED25D3A85C18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871123   (1069313) от 
+
+GiliSoft Formathor 8.5.0 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069313.jpg" />
+</div>
+
+
+###  Подробнее
+
+GiliSoft Formathor — это автономный универсальный конвертер файлов для Windows, объединяющий в одном рабочем процессе редактор PDF, конвертер PDF, конвертер PPT, конвертер Word, конвертер электронных книг, конвертер Excel и конвертер изображений.
+
+Он помогает командам и отдельным пользователям конвертировать файлы PDF, Office, электронные книги, изображения и файлы, (   Читать дальше...   )Язык интерфейса: Английский и Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEF4F82C123CEA6812D68DBC266DD5402BFF217
 ```
 
 https://mybot314.ru/tekegram_catalog/

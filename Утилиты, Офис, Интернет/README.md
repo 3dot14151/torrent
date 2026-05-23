@@ -7,7 +7,7 @@ The Bat! Professional 12.2 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070264.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ant Download Manager 2.17.2 Build 95618 (x64) + Portable
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070262.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mailbird Premium 3.0.61 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070252.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Google Chrome 148.0.7778.179 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070229.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wireshark 4.6.6 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070227.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Revo Registry Cleaner Pro 2.2.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070226.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Advanced Renamer 4.21 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070221.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Opera One 131.0.5877.74 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070216.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WinScript 2.9.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070197.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ O&O ShutUp10++ 3.0.1076 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070194.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kudu 1.41.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070187.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ LibreWolf 151.0-1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070181.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ BiglyBT 4.1.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070178.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Alfa eBooks Manager Pro & Web 9.4.22.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070177.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Notepad++ 8.9.6 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070141.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ DNS Changer 2.3.6 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070140.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ YogaDNS Pro 1.49 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070139.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Unicodia 3.1.9 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070134.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ AntiPlagiarism.NET 4.158.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070132.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Microsoft Office 2016-2024 Volume Channel [v2408] [16.0.17932.20776] AIO (x86-x6
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070129.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Vivaldi 8.0.4033.26 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070127.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ StartAllBack 3.9.23 build 5366 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070123.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ BUtil 2026.05.21 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070113.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Ant Download Manager Pro 2.17.2 Build 95617 (x32) / Build 95618 (x64) RePack (& 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070106.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ FolderSizes Enterprise 10.1.54 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070095.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ USB Safely Remove 7.4.1.1336 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070090.jpg" />
 </div>
 
 

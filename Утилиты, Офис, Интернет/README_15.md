@@ -1,60 +1,3 @@
-###  Публикация: 1867823   (1067072) от 27.04.2026
-
-FileZilla Pro 3.70.4 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FileZilla Pro управляет всеми вашими передачами, независимо от количества файлов в исходном каталоге,
-она оптимизирована для высокой скорости , и вы также можете по своему усмотрению регулировать темп передачи.
-
-Передавайте файлы с компьютера через FTP/SFTP/FTPS, Amazon S3 , Backblaze B2 ,  Box , Dropbox ,  Google Cloud , Google Drive , Microsoft Azure , Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский, Армянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3682FB95247C0AE45F3BA6470B0733D78D42D0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867829   (1067068) от 27.04.2026
-
-Syncovery Premium 11.15.2.202 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Лучший инструмент для синхронизации, резервного копирования, копирования и миграции.
-
-Вы можете настроить столько различных заданий, сколько вам нужно, и запускать их вручную или с помощью планировщика. Syncovery работает с локальными жесткими дисками, сетевыми дисками и любыми другими смонтированными томами. Кроме того, он поддерживает FTP, SSH, HTTP, WebDAV, Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBFD882212B923D543839CFB72340FA67E42D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867846   (1067062) от 27.04.2026
 
 RAM Saver Professional 26.4.1 [Multi/Ru]
@@ -63,7 +6,7 @@ RAM Saver Professional 26.4.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067062.jpg" />
 </div>
 
 
@@ -92,7 +35,7 @@ WinArchiver Free / Pro 6.2 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067059.jpg" />
 </div>
 
 
@@ -118,7 +61,7 @@ SoftPerfect WiFi Guard 25.12 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067057.jpg" />
 </div>
 
 
@@ -144,7 +87,7 @@ QILING Disk Master Free / Pro / Server / Tech 8.7.6 Build 20260425 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067041.jpg" />
 </div>
 
 
@@ -170,7 +113,7 @@ Q-Dir 12.61 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067021.jpg" />
 </div>
 
 
@@ -198,7 +141,7 @@ GetPixelColor 3.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067019.jpg" />
 </div>
 
 
@@ -224,7 +167,7 @@ Office Tool Plus 11.3.12.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067018.jpg" />
 </div>
 
 
@@ -250,7 +193,7 @@ MAX Desktop 26.14.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067017.jpg" />
 </div>
 
 
@@ -276,7 +219,7 @@ Fan Control V266 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067013.jpg" />
 </div>
 
 
@@ -302,7 +245,7 @@ Process Lasso Pro 18.0.1.24 RePack (& Portable) by TryRooM [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067012.jpg" />
 </div>
 
 
@@ -328,7 +271,7 @@ Brave Browser 1.89.143 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067011.jpg" />
 </div>
 
 
@@ -355,7 +298,7 @@ Mozilla Thunderbird 150.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067009.jpg" />
 </div>
 
 
@@ -381,7 +324,7 @@ Firefox Browser 150.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066997.jpg" />
 </div>
 
 
@@ -407,7 +350,7 @@ ShareX 20.0.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066980.jpg" />
 </div>
 
 
@@ -433,7 +376,7 @@ Zen Browser 1.19.9 beta [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066979.jpg" />
 </div>
 
 
@@ -459,7 +402,7 @@ Opera GX 130.0.5847.89 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066976.jpg" />
 </div>
 
 
@@ -485,7 +428,7 @@ MediaHuman YouTube to MP3 Converter 3.9.20 (2404) (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066959.jpg" />
 </div>
 
 
@@ -511,7 +454,7 @@ MediaHuman YouTube Downloader 3.9.20 (2404) (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066958.jpg" />
 </div>
 
 
@@ -537,7 +480,7 @@ iBeesoft Duplicate File Finder 4.6.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066889.jpg" />
 </div>
 
 
@@ -563,7 +506,7 @@ iBeesoft Disk Partition Wizard Professioanl / Server / Technician 3.5.0 [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066888.jpg" />
 </div>
 
 
@@ -591,7 +534,7 @@ DesktopNoteOK 4.55 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066856.jpg" />
 </div>
 
 
@@ -618,7 +561,7 @@ ThisIsMyFile 4.51 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066854.jpg" />
 </div>
 
 
@@ -645,7 +588,7 @@ OCCT 16.1.9 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066853.jpg" />
 </div>
 
 
@@ -671,7 +614,7 @@ Adobe Acrobat Pro 2026.001.21483 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066852.jpg" />
 </div>
 
 
@@ -682,6 +625,58 @@ Acrobat Pro — это полностью обновленная настоль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE5C0F3E8C394C8AD778F4A4BCAB99A3A3A385E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867678   (1066832) от 26.04.2026
+
+DISMTools 0.7.3.26042 + Portable [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066832.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISMTools — это программа с удобным графическим интерфейсом для работы с DISM, которая позволяет управлять WIM-образами Windows и решать множество других задач.Язык интерфейса: Английский, другие (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225C6957168D430ECE2F45EFF311B2600378B145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867153   (1066827) от 
+
+MAX Desktop 26.14.0 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D106930177C2457F466F8BE0EAFD2248CF2ECA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

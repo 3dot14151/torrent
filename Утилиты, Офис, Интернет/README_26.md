@@ -1,107 +1,3 @@
-###  Публикация: 1862413   (1064165) от 30.03.2026
-
-IObit Driver Booster Pro 13.3.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41C59B7262053702AEFD9772D3B68ED6599C9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862416   (1064164) от 30.03.2026
-
-Icecream Screen Recorder Pro 7.46 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED52BDAF5616B5299AD4A620FC98611C588A9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862427   (1064162) от 30.03.2026
-
-StartAllBack 3.9.22 build 5362 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1399009F224B3DD9CA1A80D3543C8D7DA3EFD7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862432   (1064155) от 30.03.2026
-
-CrystalMark Retro 2.1.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-CrystalMark - это простая в обращении и мощная по функциям программа для тестирования и сравнения скорости работы компьютера и отдельных его компонентов. Также, CrystalMark позволяет просматривать подробную информацию об аппаратных компонентах компьютера.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A5FB4E42B362F88B16111A911B88B6D6B86469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862438   (1064154) от 30.03.2026
 
 Icecream Screen Recorder Pro 7.46 [Multi/Ru]
@@ -110,7 +6,7 @@ Icecream Screen Recorder Pro 7.46 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064154.jpg" />
 </div>
 
 
@@ -128,32 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862456   (1064140) от 30.03.2026
-
-Absolute Uninstaller 6.0.1.21 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Absolute Uninstaller – это программа похожая на стандартную утилиту Установку/Удаление программ в Windows, но более мощная. Стандартное приложение установка/удаление программ не может полностью удалить приложения и очень часто оставляет недействительные ключи в реестре, ненужные файлы на жестком диске. Чем больше мусорных файлов на вашем компьютере, тем медленнее (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC9B2AB0F36737062A7420140CF6F79617BCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862473   (1064131) от 30.03.2026
 
 Glary Utilities Pro 6.40.0.44 + Portable [Multi/Ru]
@@ -162,7 +32,7 @@ Glary Utilities Pro 6.40.0.44 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064131.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ Simple Sticky Notes 6.9 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064113.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ John’s Background Switcher 6.0.0.7  + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064109.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ Glary Utilities Pro 6.40.0.44 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064107.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ OpenHashTab 3.1.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064103.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ Geekbench 6.6.0 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064101.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ O&O Defrag Professional 30.5 Build 1215 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064099.jpg" />
 </div>
 
 
@@ -345,7 +215,7 @@ Glary Utilities Pro 6.40.0.44 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064097.jpg" />
 </div>
 
 
@@ -371,7 +241,7 @@ PortableApps.com Platform 30.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064093.jpg" />
 </div>
 
 
@@ -399,7 +269,7 @@ R-Studio Technician 9.5 Build 191733 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064092.jpg" />
 </div>
 
 
@@ -425,7 +295,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 7.2 RePack (& Port
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064090.jpg" />
 </div>
 
 
@@ -451,7 +321,7 @@ WindowManager 10.26.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064087.jpg" />
 </div>
 
 
@@ -477,7 +347,7 @@ Screenpresso Pro 2.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064064.jpg" />
 </div>
 
 
@@ -503,7 +373,7 @@ Icecream Screen Recorder Pro 7.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064063.jpg" />
 </div>
 
 
@@ -529,7 +399,7 @@ DVDFab 13.0.5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064059.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ PDFsam Basic 6.0.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064051.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ HWiNFO 8.45 Build 5950 Beta Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064049.jpg" />
 </div>
 
 
@@ -609,7 +479,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064042.jpg" />
 </div>
 
 
@@ -635,7 +505,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064041.jpg" />
 </div>
 
 
@@ -661,7 +531,7 @@ Auslogics Registry Cleaner 11.1.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064040.jpg" />
 </div>
 
 
@@ -672,6 +542,137 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3FDAA136CFC85833E5A7C5604EC5384125DC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862650   (1064016) от 31.03.2026
+
+Hosts File Editor+ 1.5.18 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hosts File Editor - небольшая бесплатная утилита, которая позволяет легко и просто управлять доступом к веб-сайтам и сетевому трафику путем редактирования host файлов. Пользовательский интерфейс интуитивно понятен и прост в навигации. Присутствует возможность быстро восстановить исходный host файл, если внесенные изменения привели к непредвиденным последствиям. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1009973C15F52C1232F0FCD0E24918BDA660E61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862651   (1064015) от 31.03.2026
+
+VCap Downloader Pro 0.1.47.7035 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064015.jpg" />
+</div>
+
+
+###  Подробнее
+
+VCap Downloader (VCapDL) – это универсальное программное обеспечение, позволяющее захватывать видео и аудио с интернет-сайтов. Интерфейс программы напоминает интерфейс обычного браузера, что облегчает пользователю знакомство и работу с этим программным обеспечением. Пользователю просто нужно скопировать URL видео из любимого браузера и перенести его в VCap Downloader. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870C11450F34FC06A137F3FB3C39FDFE66A350F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862305   (1064009) от 31.03.2026
+
+Zapret-discord-youtube 1.8.1 Mod PingWarpServer by Alexandr1235 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zapret Mod PingWarpServer — сборка на основе  zapret-discord-youtube дополненная wlanapi для запуска на Windows Server 2025 и микрокодом взаимодействия с Warp клиентом.
+Zapret Service Manager — это мощный инструмент для обхода DPI-блокировок и восстановления доступа к замедленным ресурсам (YouTube, Discord и др.) на базе легендарного движка Zapret. Программа модифицирует (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75861D622D580DF9F6E3A178EAAA545E1B2D2146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862657   (1064000) от 31.03.2026
+
+WinSnap 6.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064000.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinSnap - отличный многофункциональный инструмент для быстрого снятия снимка экрана монитора с последующей возможностью его редактирования. Эта программа сохраняет как классический скриншот прямоугольного окна, так и нестандартный непрямоугольной формы. Кроме того, непосредственно в этом приложении можно редактировать полученный снимок: изменить фон, применять тени, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154AF505CAB1739991DB5486605BC7647AB989BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862658   (1063999) от 31.03.2026
+
+WinSnap 6.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063999.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinSnap - отличный многофункциональный инструмент для быстрого снятия снимка экрана монитора с последующей возможностью его редактирования. Эта программа сохраняет как классический скриншот прямоугольного окна, так и нестандартный непрямоугольной формы. Кроме того, непосредственно в этом приложении можно редактировать полученный снимок: изменить фон, применять тени, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB31DD793A76F41395421DF2EC5A90598F4CC395
 ```
 
 https://mybot314.ru/tekegram_catalog/

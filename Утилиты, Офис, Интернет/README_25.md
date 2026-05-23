@@ -1,83 +1,3 @@
-###  Публикация: 1864338   (1064568) от 
-
-OCCT 16.1.8 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342FBB96D874907A28E6E5A4058591F501E5CEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864348   (1064560) от 
-
-Foxit PDF Editor Pro Perpetual 14.0.3.33502 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
-Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
-Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786CFAC821B55E3F2E16557AE0275089FCFF63BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862023   (1064406) от 28.03.2026
-
-SoftPerfect RAM Disk 26.2 RePack by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-SoftPerfect RAM Disk - программа для создания виртуального диска в оперативной памяти. Так как память намного быстрее, чем физические жесткие диски, имеет смысл для достижения более высокой производительности хранить временные данные в быстродействующей оперативной памяти. Современные компьютеры оснащены большим количеством оперативной памяти, однако большую часть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0762479E69FE7FB3D6F5A9D9E2C1FD706C470E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862027   (1064403) от 28.03.2026
 
 GoodSync Enterprise 12.9.26.6 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -86,7 +6,7 @@ GoodSync Enterprise 12.9.26.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064403.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ XYplorer 28.30.0100 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064402.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ IsMyLcdOK 6.18 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064399.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ QuickMemoryTestOK 5.41 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064396.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ Koodo Reader 2.3.1 RC + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064365.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ Floorp Browser 12.12.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064352.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ Q-Dir 12.55 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064348.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ WinScript 2.1.4 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064333.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ BitTorrent 7.2.1 Build 25432 Portable by Alexandr1235 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064332.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.25.8200 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064282.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ XYplorer 28.30.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064275.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ DISMTools 0.7.3.26032 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064273.jpg" />
 </div>
 
 
@@ -394,34 +314,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862248   (1064268) от 29.03.2026
-
-Wise Duplicate Finder Pro 2.1.9.71 RePack & (Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Wise Duplicate Finder – узкоспециализированная программа, которая предназначается для поиска и удаления дубликатов на вашем ПК.
-Wise Duplicate Finder помогает найти и удалить дубликаты файлов, таким образом, высвободив свободное место. Пользователю после установки программы остаётся лишь в настройках задать нужные параметры и начать сканировать компьютер.
-Давайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1748CBDE2020BCBE12F6295F78F1EE8629750D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862254   (1064267) от 29.03.2026
 
 Ashampoo Burning Studio 27.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -430,7 +322,7 @@ Ashampoo Burning Studio 27.0.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064267.jpg" />
 </div>
 
 
@@ -456,7 +348,7 @@ MaxBulk Mailer Pro 8.8.9 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064263.jpg" />
 </div>
 
 
@@ -483,7 +375,7 @@ Advanced Renamer 4.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064257.jpg" />
 </div>
 
 
@@ -510,7 +402,7 @@ MiniTool Power Data Recovery 12.8 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064252.jpg" />
 </div>
 
 
@@ -536,7 +428,7 @@ Adobe InCopy 2026 21.3.0.60 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064246.jpg" />
 </div>
 
 
@@ -563,7 +455,7 @@ Calibre 9.6.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064242.jpg" />
 </div>
 
 
@@ -589,7 +481,7 @@ StartAllBack 3.9.22 StartIsBack++ 2.9.21 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064183.jpg" />
 </div>
 
 
@@ -615,7 +507,7 @@ R-Studio Network 9.5 Build 191733 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064182.jpg" />
 </div>
 
 
@@ -641,7 +533,7 @@ TapinRadio 2.16.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064181.jpg" />
 </div>
 
 
@@ -668,7 +560,7 @@ Ditto Clipboard Manager 3.25.113.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064169.jpg" />
 </div>
 
 
@@ -679,6 +571,110 @@ Ditto Clipboard Manager 3.25.113.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE751ADF48F7A5BBE7387CCABC254274F365DB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862413   (1064165) от 30.03.2026
+
+IObit Driver Booster Pro 13.3.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41C59B7262053702AEFD9772D3B68ED6599C9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862416   (1064164) от 30.03.2026
+
+Icecream Screen Recorder Pro 7.46 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream Screen Recorder - программа, позволяющая вести запись видео с экрана Вашего компьютера, а также делать скриншоты как всего окна, так и выбранной области. Приложение обладает полным набором необходимых инструментов для профессионального захвата видео с экрана со звуком, являясь при этом очень понятным и удобным в использовании. Запись игр, Skype, вебинаров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED52BDAF5616B5299AD4A620FC98611C588A9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862427   (1064162) от 30.03.2026
+
+StartAllBack 3.9.22 build 5362 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064162.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1399009F224B3DD9CA1A80D3543C8D7DA3EFD7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862432   (1064155) от 30.03.2026
+
+CrystalMark Retro 2.1.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064155.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalMark - это простая в обращении и мощная по функциям программа для тестирования и сравнения скорости работы компьютера и отдельных его компонентов. Также, CrystalMark позволяет просматривать подробную информацию об аппаратных компонентах компьютера.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A5FB4E42B362F88B16111A911B88B6D6B86469
 ```
 
 https://mybot314.ru/tekegram_catalog/

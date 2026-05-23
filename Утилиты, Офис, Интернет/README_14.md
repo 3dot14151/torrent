@@ -1,29 +1,3 @@
-###  Публикация: 1868107   (1067384) от 
-
-Windows 10 Debloater 3.0.1 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184A8AF27A16CF33079FD003063BC60EBB9AC003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868108   (1067383) от 
 
 Windows 11 Debloater 2.1.1 Portable [Multi/Ru]
@@ -32,7 +6,7 @@ Windows 11 Debloater 2.1.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067383.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Firefox Browser 150.0.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067382.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Hasleo Backup Suite 5.8.2.0 Professional | Eterprise | Technician Editions RePac
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067380.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Directory Opus Pro Edition 13.22 Build 9428 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067376.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Any Video Downloader Pro 10.3.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067364.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ IObit Software Updater Pro 8.4.1.15 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067363.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ TweakNow WinSecret Plus! 9.2.0 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067362.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ IObit Driver Booster Pro 13.4.0.234 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067358.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067332.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Ashampoo Burning Studio 2026 1.27.2 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067331.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Wipe  Professional 2604 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067328.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067327.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ MyLanViewer 6.7.9 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067326.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ WindowManager 10.26.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067324.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Google Chrome 147.0.7727.138 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067320.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ SoftMaker FlexiPDF Pro 2025.418.4.25 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067317.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Opera One 131.0.5877.5 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067314.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ Opera GX 130.0.5847.108 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067310.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Ferdium 7.1.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067309.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ MiniTool Power Data Recovery 12.9.0 Full (Standard-Deluxe-Enterprise-Technician)
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067305.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Advanced PC Cleanup 3.32.32.10081 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067300.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Vivaldi 7.9.3970.60 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067296.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ AnyDesk 9.7.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067210.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067203.jpg" />
 </div>
 
 
@@ -651,25 +625,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867801   (1067093) от 27.04.2026
+###  Публикация: 1867823   (1067072) от 27.04.2026
 
-CCleaner 6.40.11562 Free / Professional / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+FileZilla Pro 3.70.4 [Multi/Ru]
 
 >>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+FileZilla Pro управляет всеми вашими передачами, независимо от количества файлов в исходном каталоге,
+она оптимизирована для высокой скорости , и вы также можете по своему усмотрению регулировать темп передачи.
+
+Передавайте файлы с компьютера через FTP/SFTP/FTPS, Amazon S3 , Backblaze B2 ,  Box , Dropbox ,  Google Cloud , Google Drive , Microsoft Azure , Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский, Армянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C242393E4CC0219A69A2E9089CDD0E93340B9DA
+magnet:?xt=urn:btih:3682FB95247C0AE45F3BA6470B0733D78D42D0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867829   (1067068) от 27.04.2026
+
+Syncovery Premium 11.15.2.202 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший инструмент для синхронизации, резервного копирования, копирования и миграции.
+
+Вы можете настроить столько различных заданий, сколько вам нужно, и запускать их вручную или с помощью планировщика. Syncovery работает с локальными жесткими дисками, сетевыми дисками и любыми другими смонтированными томами. Кроме того, он поддерживает FTP, SSH, HTTP, WebDAV, Amazon (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBFD882212B923D543839CFB72340FA67E42D03
 ```
 
 https://mybot314.ru/tekegram_catalog/

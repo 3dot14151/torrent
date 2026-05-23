@@ -1,32 +1,3 @@
-###  Публикация: 1871345   (1069555) от 
-
-Владимир Кощеев | Моров (Том 3) (2026) [MP3, Александр Воробьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Пытаясь обеспечить себе развитие и спокойно жить в новом мире, ты оказываешься втянут в войну банд и интриги высшей аристократии.
-
-Вторая жизнь становится все опаснее, но у тебя крепкие руки, холодная голова, опыт иного мира. И магия.
-(   Читать дальше...   )Жанр: Альтернативная история, ФэнтезиИздательство: ЛитРесПродолжительность: 08:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E554F541053F0DEFF3CA8469FBB34BFEA070297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871344   (1069554) от 
 
 Владимир Кощеев | Моров (Том 2) (2026) [MP3, Александр Воробьев]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069554.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069553.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ Findroid | Империум (Книга 3) (2026) [MP3, Вадим Кривош�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069552.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ Findroid | Империум (Книга 2) (2026) [MP3, Вадим Кривош�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069551.jpg" />
 </div>
 
 
@@ -143,7 +114,7 @@ Findroid | Империум (Книга 4) (2026) [MP3, Вадим Кривош�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069550.jpg" />
 </div>
 
 
@@ -170,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069549.jpg" />
 </div>
 
 
@@ -196,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069548.jpg" />
 </div>
 
 
@@ -222,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069547.jpg" />
 </div>
 
 
@@ -251,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069546.jpg" />
 </div>
 
 
@@ -277,7 +248,7 @@ VA - The Best Trance Tunes Of 2026 Vol. 2 - Mixed by Roan Gosling (2026) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069545.jpg" />
 </div>
 
 
@@ -306,7 +277,7 @@ VA - Ori Uplift - Uplifting Only Episode 692 (2026) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069544.jpg" />
 </div>
 
 
@@ -335,7 +306,7 @@ VA - The Best Trance Tunes Of 2026 Vol. 1 - Mixed by Roan Gosling (2026) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069543.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069542.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ VA - Trancendence, Vol. 10 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069541.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ Toon Boom Harmony Premium 25.0.1 Build 24106 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069540.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ GstarCAD Professional 2021 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069539.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069538.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ YT Geek YTDL 12.3.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069537.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ QontrolPanel 1.15.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069536.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069535.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069534.jpg" />
 </div>
 
 
@@ -607,7 +578,7 @@ Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069533.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069532.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069531.jpg" />
 </div>
 
 
@@ -685,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069530.jpg" />
 </div>
 
 
@@ -696,6 +667,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C2C804EB385736194A2B52AE12A72D924D1C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871377   (1069529) от 
+
+Криминальное прошлое / Criminal Record (2026) WEB-DL [H.265/2160p] [4K, HDR10+, DV 8, 10-bit] (сезон 2, серии 1-4 из 8) HDRezka, Red Head Sound, LE-Production (обновляемая)
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство юноши на политическом митинге вынуждает непримиримых детективов Джун Ленкер и Дэниела Хегарти заключить шаткое перемирие. Рутинное расследование быстро перерастает в опасную тайную операцию. Полицейским предстоит предотвратить масштабный теракт ультраправых группировок в центре Лондона.Производство: Великобритания, США / STV Productions, Tod ProductionsЖанр: триллер, драма, криминалРежиссер: Джим Лоуч, Шон Джеймс ГрантАктеры: Питер Капальди, Каш Джамбо, Шон Дули, Чарли Крид-Майлз, Стеффан Сеннид, Чиззи Акудолу, Анна Уилсон-Джонс, Анна Франколини, Сиа Алипур, Зои УонамейкерПеревод: Многоголосый (HDRezka, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198C7817322FD9CC0217BDBDE9E57500196688D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

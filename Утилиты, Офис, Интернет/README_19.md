@@ -1,57 +1,3 @@
-###  Публикация: 1865476   (1065747) от 
-
-Office Tool Plus 11.2.19.0 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Office Tool Plus - функциональная программа для работы с Office от компании Microsoft. Позволит вам выполнить модернизацию текущего офиса, допустим изменить канал обновления, если есть желание возможно удалить лишние языковые пакеты, можно сам офис полностью удалить из системы. Плюс у вас не будет больше проблем с активацией, теперь максимально легко установить ключ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F5F78E9B9441982FC839FE44258E0CBCAC8C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865480   (1065745) от 
-
-Lansweeper 12.7.1.1 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Lansweeper — это интеллектуальный слой, разделяющий хаос данных и процесс принятия решений.
-
-Lansweeper — это инструмент автоматического обнаружения сети и управления активами, который сканирует все ваши компьютеры и устройства и отображает их в легкодоступном веб-интерфейсе. Нет необходимости устанавливать на компьютеры какие-либо агенты, все сканирование осуществляется (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FA329C504CD5204D39808E4320D2F1A8A3F014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865486   (1065743) от 
 
 Ant Download Manager Pro 2.17.0 Build 93977 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -60,7 +6,7 @@ Ant Download Manager Pro 2.17.0 Build 93977 RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065743.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ ChrisPC VideoTube Downloader Pro 15.26.0414 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065735.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ Soft Organizer Pro 10.40 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065734.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ FolderSizes Enterprise 10.0.43 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065730.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ Google Chrome 147.0.7727.102 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065706.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ Google Chrome 147.0.7727.102 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065689.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ Telegram Desktop 6.7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065684.jpg" />
 </div>
 
 
@@ -244,7 +190,7 @@ Process Lasso Pro 18.0.1.24 (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065679.jpg" />
 </div>
 
 
@@ -270,7 +216,7 @@ DesktopOK 12.46 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065673.jpg" />
 </div>
 
 
@@ -297,7 +243,7 @@ FileZilla 3.70.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065669.jpg" />
 </div>
 
 
@@ -323,7 +269,7 @@ WindowManager 10.26.1 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065667.jpg" />
 </div>
 
 
@@ -349,7 +295,7 @@ Total Commander 11.57 RC4 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065664.jpg" />
 </div>
 
 
@@ -375,7 +321,7 @@ CSoftLab Advanced Diary 9.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065662.jpg" />
 </div>
 
 
@@ -401,7 +347,7 @@ YT Downloader 10.3.5 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065661.jpg" />
 </div>
 
 
@@ -427,7 +373,7 @@ Reg Organizer 9.92 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065659.jpg" />
 </div>
 
 
@@ -453,7 +399,7 @@ Syncovery Premium 11.14.4 build 185 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065643.jpg" />
 </div>
 
 
@@ -481,7 +427,7 @@ AppControl 1.2.0.282b [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065642.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ Stardock Fences 6.44 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065640.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ Kalmuri 4.2.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065633.jpg" />
 </div>
 
 
@@ -563,7 +509,7 @@ Vivaldi 7.9.3970.55 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065632.jpg" />
 </div>
 
 
@@ -589,7 +535,7 @@ Opera One 130.0.5847.41 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065631.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065630.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ Opera GX 130.0.5847.58 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065628.jpg" />
 </div>
 
 
@@ -669,7 +615,7 @@ Bandizip Professional / Enterprise 7.42 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065617.jpg" />
 </div>
 
 
@@ -680,6 +626,58 @@ Bandizip — программа для работы с архивами. Дан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E49FE7361268CE3E87E2CE382DD292A9032F762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865680   (1065611) от 16.04.2026
+
+4K Downloader 6.3.2 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065611.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD. Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простая (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08591C3D977B3856C34B6E68E0CFF94F7752E96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865682   (1065610) от 16.04.2026
+
+Any Video Downloader Pro 10.3.2 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Video Downloader Pro - это приложение для Windows, помогающее скачивать видео с YouTube, Facebook, TikTok и тысяч других видеохостингов. Оно ускоряет загрузку до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF40C86798D33AA0E028F28893944828C7E8630
 ```
 
 https://mybot314.ru/tekegram_catalog/

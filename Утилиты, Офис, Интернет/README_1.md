@@ -6,7 +6,7 @@ TweakNow WinSecret Plus! 9.4.0 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069912.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iperius Backup Full 8.8.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069911.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mailbird Premium 3.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069910.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Abelssoft WashAndGo 25.29.04 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069908.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Glary Utilities Pro 6.42.0.46 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069899.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Allavsoft Video Downloader Converter 3.29.1.9632 RePack (& Portable) by Dodakaed
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069897.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Any Video Downloader Pro 10.3.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069896.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DBF Viewer 2000 9.19.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069887.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Adobe Acrobat Pro 2026.001.21563 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069885.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PowerISO 9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069883.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ PowerISO 9.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069882.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Wondershare PDFelement Pro 12.1.18.4212 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069881.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ant Download Manager Pro 2.17.1 Build 95441 RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069880.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Wise Disk Cleaner 11.3.5.855 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069878.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Hosts File Editor+ 2.6.18 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069869.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069862.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ YASB 2.0.1 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069850.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ ActivePresenter Pro 10.5.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069841.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Bat! Professional 12.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069838.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Throne (ex. NekoRay / NekoBox) 1.1.3 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069830.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Glary Utilities Pro 6.42.0.46 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069827.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Tor Browser 15.0.14 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069821.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ ytdlp-interface 2.19.1 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069815.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069813.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ FileZilla 3.70.5 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069808.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ FileZilla Pro 3.70.5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069807.jpg" />
 </div>
 
 

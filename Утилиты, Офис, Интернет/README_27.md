@@ -1,134 +1,3 @@
-###  Публикация: 1862650   (1064016) от 31.03.2026
-
-Hosts File Editor+ 1.5.18 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Hosts File Editor - небольшая бесплатная утилита, которая позволяет легко и просто управлять доступом к веб-сайтам и сетевому трафику путем редактирования host файлов. Пользовательский интерфейс интуитивно понятен и прост в навигации. Присутствует возможность быстро восстановить исходный host файл, если внесенные изменения привели к непредвиденным последствиям. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1009973C15F52C1232F0FCD0E24918BDA660E61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862651   (1064015) от 31.03.2026
-
-VCap Downloader Pro 0.1.47.7035 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-VCap Downloader (VCapDL) – это универсальное программное обеспечение, позволяющее захватывать видео и аудио с интернет-сайтов. Интерфейс программы напоминает интерфейс обычного браузера, что облегчает пользователю знакомство и работу с этим программным обеспечением. Пользователю просто нужно скопировать URL видео из любимого браузера и перенести его в VCap Downloader. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870C11450F34FC06A137F3FB3C39FDFE66A350F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862305   (1064009) от 31.03.2026
-
-Zapret-discord-youtube 1.8.1 Mod PingWarpServer by Alexandr1235 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Zapret Mod PingWarpServer — сборка на основе  zapret-discord-youtube дополненная wlanapi для запуска на Windows Server 2025 и микрокодом взаимодействия с Warp клиентом.
-Zapret Service Manager — это мощный инструмент для обхода DPI-блокировок и восстановления доступа к замедленным ресурсам (YouTube, Discord и др.) на базе легендарного движка Zapret. Программа модифицирует (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75861D622D580DF9F6E3A178EAAA545E1B2D2146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862657   (1064000) от 31.03.2026
-
-WinSnap 6.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-WinSnap - отличный многофункциональный инструмент для быстрого снятия снимка экрана монитора с последующей возможностью его редактирования. Эта программа сохраняет как классический скриншот прямоугольного окна, так и нестандартный непрямоугольной формы. Кроме того, непосредственно в этом приложении можно редактировать полученный снимок: изменить фон, применять тени, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154AF505CAB1739991DB5486605BC7647AB989BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862658   (1063999) от 31.03.2026
-
-WinSnap 6.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-WinSnap - отличный многофункциональный инструмент для быстрого снятия снимка экрана монитора с последующей возможностью его редактирования. Эта программа сохраняет как классический скриншот прямоугольного окна, так и нестандартный непрямоугольной формы. Кроме того, непосредственно в этом приложении можно редактировать полученный снимок: изменить фон, применять тени, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB31DD793A76F41395421DF2EC5A90598F4CC395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862659   (1063997) от 31.03.2026
 
 WinSnap 6.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -137,7 +6,7 @@ WinSnap 6.2.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063997.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ WinSnap 6.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063996.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ USB Safely Remove 7.3.1.1334 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063990.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ Zentimo xStorage Manager 3.3.1.1303 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063988.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ USB Safely Remove 7.3.1.1334 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063987.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ USB Safely Remove 7.3.1.1334 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063986.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ iTubeGo YouTube Downloader 10.14.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063984.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ Driver Store Explorer 1.0.26 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063982.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ DesktopOK 12.44 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063979.jpg" />
 </div>
 
 
@@ -373,7 +242,7 @@ Emurasoft EmEditor Professional 26.0.3 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063974.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ Emurasoft EmEditor Professional 26.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063973.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ Icecream Screen Recorder Pro 7.46 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063972.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ Allavsoft Video Downloader Converter 3.29.0.9575 RePack (& Portable) by Dodakaed
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063970.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ Free YouTube Download Premium 4.5.10.317 RePack (& Portable) by Dodakaedr [Multi
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063967.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ OpenVPN 2.7.1 Final [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063960.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ Pale Moon 34.1.0 + Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063959.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ Notepad3 6.25.822.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063958.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ RJ TextEd 16.56 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063956.jpg" />
 </div>
 
 
@@ -609,7 +478,7 @@ Registry Finder 2.61.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063949.jpg" />
 </div>
 
 
@@ -635,7 +504,7 @@ SanDisk (Western Digital) SSD Dashboard 5.2.2.3 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063948.jpg" />
 </div>
 
 
@@ -662,7 +531,7 @@ Samsung SSD Magician 9.0.1.950 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063930.jpg" />
 </div>
 
 
@@ -673,6 +542,136 @@ Samsung SSD Magician - многофункциональная программа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309EDC5E21186D85BA0EA8BC9A1D6A217E96C94A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862757   (1063929) от 01.04.2026
+
+Glary Utilities Pro 6.40.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128C2B9F81A7A6B67E79021CFBE50ED86648923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862760   (1063928) от 01.04.2026
+
+R-Studio Network 9.5 Build 191733 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B107FC089E63BD9102B03ADC0F7CB9395CD710E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862767   (1063927) от 01.04.2026
+
+VCap Downloader 0.1.47.7035 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063927.jpg" />
+</div>
+
+
+###  Подробнее
+
+VCap Downloader (VCapDL) – это универсальное программное обеспечение, позволяющее захватывать видео и аудио с интернет-сайтов. Интерфейс программы напоминает интерфейс обычного браузера, что облегчает пользователю знакомство и работу с этим программным обеспечением. Пользователю просто нужно скопировать URL видео из любимого браузера и перенести его в VCap Downloader. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B71386DF791C91880C78E52DE9109B0A4567B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862773   (1063925) от 01.04.2026
+
+StartAllBack 3.9.22.5362 (3.6.16.4729) StartIsBack 2.9.21 (2.9.1) / 1.7.6 / 2.1.2 RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063925.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA40DBD6062C04BAE309D5AD8E644407CFEA2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862811   (1063910) от 01.04.2026
+
+Hard Disk Sentinel Pro 6.40 Build 13782 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951402421AA70C185A48ABB4D48E8649E8E96C77
 ```
 
 https://mybot314.ru/tekegram_catalog/

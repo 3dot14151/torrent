@@ -1,159 +1,3 @@
-###  Публикация: 1860059   (1061545) от 19.03.2026
-
-XYplorer 28.20.0600 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D7DB23DCC47CF17EAE2532F9E33FEB2532CF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860063   (1061544) от 19.03.2026
-
-Google Chrome 146.0.7680.154 Stable + Enterprise [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE7CCDE9B1BCDA8E07050FBA452188D40779BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860071   (1061541) от 19.03.2026
-
-VCap Downloader 0.1.46.6983 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-VCap Downloader (VCapDL) – это универсальное программное обеспечение, позволяющее захватывать видео и аудио с интернет-сайтов. Интерфейс программы напоминает интерфейс обычного браузера, что облегчает пользователю знакомство и работу с этим программным обеспечением. Пользователю просто нужно скопировать URL видео из любимого браузера и перенести его в VCap Downloader. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E7D959FB2B0164922F96565C5CF97C0AD617E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860074   (1061539) от 19.03.2026
-
-Any Video Downloader Pro 10.2.3 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, которое поможет вам загружать видео с YouTube, Facebook, Dailymotionи многих других сайтов обмена видео. Это ускоряет ваши загрузки до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514229B22C47E5FE0B5CCF24AE2F392815EE032E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860083   (1061535) от 19.03.2026
-
-Youtube Downloader HD 5.9.9.10 + Portable [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Youtube Downloader HD - бесплатная и предельно простая в использовании программа для скачивания видео с YouTube и сохранения его на компьютере с возможностью конвертирования в формат AVI или MP4 (совместим с IPod, iPhone). Достаточно вставить ссылку на нужный файл в окошко программы и указать папку для сохранения видео, после чего вы получите интересующий вас AVI (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B6FF1B8FE9D0E7A0C5D64FDD07EF064A9B0E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860086   (1061533) от 19.03.2026
-
-Vivaldi 7.9.3970.39 include standalone [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9ED3DA35CC38BCF61A2B2C71D57D1C5DA546657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860087   (1061528) от 19.03.2026
 
 CoolUtils Total PDF Converter 6.5.0.356 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -162,7 +6,7 @@ CoolUtils Total PDF Converter 6.5.0.356 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061528.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ VCap Downloader 0.1.46.6983 Portable by 7997 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061527.jpg" />
 </div>
 
 
@@ -214,7 +58,7 @@ Opera GX 128.0.5807.97 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061526.jpg" />
 </div>
 
 
@@ -242,7 +86,7 @@ Youtube Downloader HD 5.9.9.10 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061520.jpg" />
 </div>
 
 
@@ -268,7 +112,7 @@ Ant Download Manager 2.16.8 Build 92751 (92752) Portable by 7997 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061517.jpg" />
 </div>
 
 
@@ -294,7 +138,7 @@ DBF Viewer 2000 9.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061515.jpg" />
 </div>
 
 
@@ -322,7 +166,7 @@ MAX Desktop 26.8.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061481.jpg" />
 </div>
 
 
@@ -348,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061467.jpg" />
 </div>
 
 
@@ -374,7 +218,7 @@ Sumatra PDF 3.6 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061462.jpg" />
 </div>
 
 
@@ -401,7 +245,7 @@ Blue Iris 6.0.3.4 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061456.jpg" />
 </div>
 
 
@@ -427,7 +271,7 @@ TechSmith Camtasia 26.0.4  Build 15557 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061451.jpg" />
 </div>
 
 
@@ -453,7 +297,7 @@ RAM Saver Professional 26.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061402.jpg" />
 </div>
 
 
@@ -479,7 +323,7 @@ WinTools.net Premium 26.3.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061401.jpg" />
 </div>
 
 
@@ -505,7 +349,7 @@ IObit Smart Defrag Pro 11.2.0.472 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061397.jpg" />
 </div>
 
 
@@ -531,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061393.jpg" />
 </div>
 
 
@@ -557,7 +401,7 @@ WifiInfoView 2.98 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061389.jpg" />
 </div>
 
 
@@ -575,32 +419,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859906   (1061387) от 18.03.2026
-
-Microsoft PowerToys 0.98.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Microsoft PowerToys – это набор утилит, позволяющих опытным пользователям настраивать и оптимизировать работу оболочки Windows 10/11 для повышения производительности.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C22153DC5DAB44B454D582EAF27D34B4BECDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859927   (1061375) от 18.03.2026
 
 Opera One 129.0.5823.15 + Portable [Multi/Ru]
@@ -609,7 +427,7 @@ Opera One 129.0.5823.15 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061375.jpg" />
 </div>
 
 
@@ -635,7 +453,7 @@ WinTools.net 26.3.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061368.jpg" />
 </div>
 
 
@@ -661,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061327.jpg" />
 </div>
 
 
@@ -672,6 +490,191 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365320DCA1ABE378AF0293C327F25AD35CD3FED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859632   (1061281) от 16.03.2026
+
+ReNamer Pro 7.9 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061281.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReNamer - это очень мощный и гибкий инструмент для переименования файлов, который предлагает все стандартные процедуры переименования, включая префиксы, суффиксы, замены, изменения регистра, а также удаление содержимого скобок, добавление цифровых последовательностей, изменение расширений файлов и т.д. Для опытных пользователей предусмотрена поддержка регулярных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E54D6A47B919823F0A4CA1C13EDABA9B5BD7501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859636   (1061278) от 16.03.2026
+
+Allavsoft Video Downloader Converter 3.29.0.9560 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DE4540F872EBC3A2F2E09FD7DB4E5E0A291B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859640   (1061274) от 16.03.2026
+
+MyLanViewer 6.7.7 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061274.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F580DC23E28DB35D95291F2794CB0174CC76CCD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859641   (1061272) от 16.03.2026
+
+3D.Benchmark.OK 2.44 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061272.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D.Benchmark.OK- это небольшое, но достаточно мощное приложение для максимально быстрого и точного тестирования возможностей вашей видеокарты.
+Особенно с недавно купленными видеокартами или после установки нового драйвера, вы можете сравнить значения, чтобы определить, есть ли прирост производительности, тест занимает всего 65 секунд, или вы просто запускаете автопилот, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7B0DF6186D1F85A67523388620AA553772618B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859668   (1061255) от 17.03.2026
+
+4K Video Downloader+ 26.0.8.0295 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061255.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CBADD8020DCA01592A39E7540BE5A20FC6FDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859704   (1061234) от 17.03.2026
+
+TechSmith Snagit 26.1.0 build 10201 RePack by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snagit предлагает неограниченные возможности для захвата изображений - экран целиком, одно или сразу несколько окон и графических объектов (значки, экранные кнопки, панели, меню и т.д.), области произвольной или сложной формы (многоугольник, эллипс, прямоугольник со скругленными углами), полноэкранные окна DOS-программ и окна приложений DirectX (игры, видеопроигрыватели), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A42D671273E7EFFF051839489DD13AAE733D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859713   (1061227) от 17.03.2026
+
+PortableApps.com Platform 30.2 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061227.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
+
+Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B609D0E1DBB8A9DFD937329E0715C1887E75FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

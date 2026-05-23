@@ -1,211 +1,3 @@
-###  Публикация: 1858711   (1060574) от 12.03.2026
-
-Total Commander 11.57 beta 3 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F40AF4F8D1779D16145C873B3F0779EE3244E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858717   (1060570) от 12.03.2026
-
-Duplicate File Detective 7.4.69 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Detective - программа от Key Metric Software, которая используя современную технологию анализа содержимого файла, помогает выполнить поиск дубликатов файлов в папках на жестких дисках, съемных устройствах хранения и даже на сетевых ресурсах. Затем быстро и безопасно переместить, архивировать или удалить найденные дубликаты. Поиск и удаление дублирующихся (   Читать дальше...   )Язык интерфейса: Русский (частичный перевод), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568FE9DF3798CCEBB863477A75680379E9A5D8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858718   (1060569) от 12.03.2026
-
-4K Video Downloader+ 26.0.7.293 (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17DD2595DE9F236AA3CB54A927356E66875CCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858720   (1060568) от 12.03.2026
-
-Absolute Uninstaller 6.0.1.20 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Absolute Uninstaller – это программа похожая на стандартную утилиту Установку/Удаление программ в Windows, но более мощная. Стандартное приложение установка/удаление программ не может полностью удалить приложения и очень часто оставляет недействительные ключи в реестре, ненужные файлы на жестком диске. Чем больше мусорных файлов на вашем компьютере, тем медленнее (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D62CE9F6F481602314CBA42646A007B3AA99B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858721   (1060566) от 12.03.2026
-
-Screenpresso Pro 2.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Screenpresso - легкий в использовании инструмент для создания скриншотов со встроенным редактором изображений и возможностью размещения готовых изображений в сети Интернет. С помощью программы можно делать снимки всего экрана, его части, конкретного окна (в том числе и с прокруткой), а также осуществлять захват видео высокого разрешения, с сохранением в форматы MP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9218C3797A7FA2CC451D2C6CDF55946E5DDF567F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858738   (1060544) от 12.03.2026
-
-Mozilla Thunderbird 148.0.1 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EA760D5B687B4F38C9DAA5D9F772552FB1F7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858751   (1060537) от 12.03.2026
-
-YT Downloader 10.2.8 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5640813CADE472C24F52553D6AFCFB70ED37EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858602   (1060522) от 11.03.2026
-
-4K Video Downloader+ 26.0.7.0293 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838486699A275AADD73DBCDB40621CE4D3B2FC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858402   (1060500) от 10.03.2026
 
 NetOptimizer Portable 7.0.26.309 [Multi]
@@ -214,7 +6,7 @@ NetOptimizer Portable 7.0.26.309 [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060500.jpg" />
 </div>
 
 
@@ -240,7 +32,7 @@ Adobe Acrobat Reader 2025.001.21288 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060492.jpg" />
 </div>
 
 
@@ -266,7 +58,7 @@ Terminal Services Manager 26.03 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060489.jpg" />
 </div>
 
 
@@ -292,7 +84,7 @@ Adobe Acrobat Pro 2025.001.21288.0 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060457.jpg" />
 </div>
 
 
@@ -318,7 +110,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060451.jpg" />
 </div>
 
 
@@ -344,7 +136,7 @@ UniGetUI 2026.1.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060418.jpg" />
 </div>
 
 
@@ -370,7 +162,7 @@ PrivaZer Pro 4.0.119.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060415.jpg" />
 </div>
 
 
@@ -396,7 +188,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060411.jpg" />
 </div>
 
 
@@ -422,7 +214,7 @@ Wondershare PDFelement 12.1.13.4069 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060382.jpg" />
 </div>
 
 
@@ -448,7 +240,7 @@ YT Downloader 10.2.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060367.jpg" />
 </div>
 
 
@@ -474,7 +266,7 @@ Office Tool Plus 11.1.16.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060366.jpg" />
 </div>
 
 
@@ -500,7 +292,7 @@ Magic Uneraser Home / Office / Unlimited Edition 7.2 RePack (& Portable) by TryR
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060357.jpg" />
 </div>
 
 
@@ -526,7 +318,7 @@ DBF Viewer 2000 8.99 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060351.jpg" />
 </div>
 
 
@@ -554,7 +346,7 @@ Automatic PDF Processor 2.0.24 [En/De]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060342.jpg" />
 </div>
 
 
@@ -580,7 +372,7 @@ PrivaZer Pro 4.0.119.1 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060335.jpg" />
 </div>
 
 
@@ -606,7 +398,7 @@ Wondershare PDFelement Pro 12.1.13.4069 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060324.jpg" />
 </div>
 
 
@@ -632,7 +424,7 @@ YT Downloader 10.2.6 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060323.jpg" />
 </div>
 
 
@@ -658,7 +450,7 @@ Display Driver Uninstaller 18.1.4.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060282.jpg" />
 </div>
 
 
@@ -669,6 +461,214 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128A9291A1416EBB00DE818325CEABB8C0463C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858345   (1060280) от 10.03.2026
+
+Firefox Browser 148.0.2 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EA4727082FDF64328A98F58812DBA4F31957B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858299   (1060275) от 11.03.2026
+
+Zapret-discord-youtube by Flowseal (04.03.2026) 1.9.7b [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zapret Service Manager — это мощный инструмент для обхода DPI-блокировок и восстановления доступа к замедленным ресурсам (YouTube, Discord и др.) на базе легендарного движка Zapret. Программа модифицирует сетевые пакеты таким образом, что системы провайдера перестают распознавать целевой ресурс, обеспечивая свободный доступ к сети без использования сторонних серверов. (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E063936B43198C8E7CB84284FD40C794FB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858352   (1060272) от 10.03.2026
+
+Glary Utilities Pro 6.39.0.43 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CDF66F8E81DBD80DAF5C78CCC85BB383D114CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858358   (1060259) от 10.03.2026
+
+MediaHuman YouTube Downloader 3.9.18 (0703) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060259.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03CD9DC725C878E6EF6B19A16DDFFF1756691DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858361   (1060256) от 10.03.2026
+
+PowerISO 9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060256.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1C8A3DAB5B69C638F0BB2307B17486DFD1747E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858362   (1060255) от 10.03.2026
+
+DLNow Video Downloader 1.54.2026.03.05 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060255.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLNow Video Downloader - быстрое, полезное, практичное и мощное приложение, которое позволит вам легко загружать видеоконтент из Интернета и основных социальных сетей. DLNow Video Downloader имеет чистый и простой интерфейс. DLNow Video Downloader позволяет сохранять загруженные видео в различных форматах, включая .mpeg, .avi, .flv, .wmv. Все, что вам нужно сделать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DFF231BA2E5F1F903F65B537AF29B2E363ABA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858364   (1060249) от 10.03.2026
+
+Master PDF Editor 5.9.97 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5DEAADF40C1ED28659B6B008328F740D1877E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858371   (1060244) от 10.03.2026
+
+MassTube Ultra 21.5.2.193 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060244.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F5B4A44613062D439012053CE17C1189BCE6B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

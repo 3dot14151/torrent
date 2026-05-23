@@ -1,58 +1,3 @@
-###  Публикация: 1870244   (1069236) от 
-
-Александр Афанасьев | Врата Скорби (Книги 1-4) (2025-2026) [MP3, Сергей Ларионов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Врата скорби» Александра Афанасьева — это масштабная альтернативно-историческая сага о мире, где Холодная война между Российской и Британской империями не прекращалась ни на минуту, а середина XX века превратилась в эпоху тайных операций, гонки вооружений, племенных конфликтов и имперской политики. На переднем плане — Аравийский полуостров, маленькие княжества (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Военная фантастика, Военные приключения, Историческая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 53:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D26A5FC865FC364BEF0FA15BA866D1766C270A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869553   (1069235) от 
-
-T.H. Express - Love 4 Liberty (1996) [FLAC|Lossless|tracks] <Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-1		Missing In The Rain	3:27
-2		Love 4 Liberty	3:38
-3		Crazy For Love	4:23
-4		Nite Away	4:03(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF1D0E2FAFDDA6D2939FF1BC54024243B90620B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869841   (1069234) от 
 
 Вероятно, последняя попытка сохранить интернет — «СтопЧебурнет»
@@ -61,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069234.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069233.jpg" />
 </div>
 
 
@@ -115,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069232.jpg" />
 </div>
 
 
@@ -141,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069231.jpg" />
 </div>
 
 
@@ -167,7 +112,7 @@ CrossCode (2018) [Ru/Multi] (1.4.2-4/dlc) Repack Let'sРlay [Complete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069230.jpg" />
 </div>
 
 
@@ -193,7 +138,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069229.jpg" />
 </div>
 
 
@@ -219,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069228.jpg" />
 </div>
 
 
@@ -246,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069227.jpg" />
 </div>
 
 
@@ -272,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069226.jpg" />
 </div>
 
 
@@ -299,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069225.jpg" />
 </div>
 
 
@@ -310,6 +255,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9F74CDADCE892D1524A5C2E05295ACB7349145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870290   (1069224) от 
+
+Виктор Молотов, Игорь Алмазов | Бывает и хуже? (Том 2) (2026) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Агапов, наконец, приблизился к разгадке: где же черпать магию в этом мире и как её развивать. Однако в доме поселился друг предшественника – Гриша, который почти каждый день подкидывает новых проблем. И у него появляются подозрения, что друг не просто изменился, а стал кем-то абсолютно другим. Помимо этого, на участке Агапова творится полный беспорядок. (   Читать дальше...   )Жанр: фэнтези, ПопаданцыИздательство: ЛитРесПродолжительность: 08:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5643E62FBB7155F3A11BAD6D036281A58B064323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870282   (1069223) от 
+
+Олег Рой | Изгои (Книга 3) (2025) [MP3, Юрий Кузаков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть следует за «мятежной цепочкой» по пятам. Отбившись от монстров, герои покидают базу Проекта и оказываются предоставлены сами себе. Взрослые решения имеют последствия – это понимают и члены цепочки, и Кураторы, подсчитывая потери.
+
+Опасность сближает и срывает маски – так ли важно, кем ты был раньше, если каждое следующее мгновение может стать последним? Кто (   Читать дальше...   )Жанр: Детективная фантастика, Космическая фантастикаИздательство: ЭксмоПродолжительность: 14:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D123EAFC9440C94468F9B1EE3FE129C0A1271257
 ```
 
 https://mybot314.ru/tekegram_catalog/

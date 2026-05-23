@@ -1,55 +1,3 @@
-###  Публикация: 1866817   (1066240) от 21.04.2026
-
-Prevent Restore 120 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда вы удаляете файл или папку (или очищаете корзину), они просто помечаются как удаленные и исчезают из списка в проводнике Windows. Но содержимое удаленных файлов все еще существует на диске и его можно легко восстановить в течение многих лет. На вашем компьютере могут быть тысячи уже удаленных файлов, содержимое которых все еще находится на вашем диске. Подумайте, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F936D0D6344413891308C4F063A3FEC4F90C9947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866703   (1066229) от 21.04.2026
-
-Rufus 4.14 (Build 2372) Beta [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9887DB7C625081473DEB4FA34088112EE40EBC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866832   (1066228) от 21.04.2026
 
 O&O DiskImage Premium 22.6.1231 [Multi/Ru]
@@ -58,7 +6,7 @@ O&O DiskImage Premium 22.6.1231 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066228.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ SoftPerfect RAM Disk 26.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066226.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Any Video Downloader Pro 10.3.3 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066204.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ XML Blueprint 22.20260416 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066183.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ DVDFab 13.0.5.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066175.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ YT Downloader 10.3.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066173.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ Windows Manager 2.3.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066172.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ WinScript 2.4.0 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066160.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ Slimjet 50.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066150.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ IObit Uninstaller Pro 15.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066142.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ ASCOMP Secure Eraser Pro 7.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066128.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ Master PDF Editor 5.9.98 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066091.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ Glary Utilities Pro 6.41.0.45 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066086.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ X Drive Writer 1.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066074.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ iBeesoft Data Recovery 5.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066052.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ Duplicate File Detective Enterprise 7.4.70 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066032.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ Abelssoft EasyBackup 2026.16.02 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065883.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ Abelssoft EverDoc 2026.11.04 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065822.jpg" />
 </div>
 
 
@@ -538,7 +486,7 @@ Abelssoft Screenphoto 2026.11.01 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065819.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ NirLauncher Package 1.30.23 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065817.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ YT Downloader 10.3.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065814.jpg" />
 </div>
 
 
@@ -619,7 +567,7 @@ Insofta 3D Text Commander 7.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065813.jpg" />
 </div>
 
 
@@ -647,7 +595,7 @@ EF Commander 26.04 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065760.jpg" />
 </div>
 
 
@@ -673,7 +621,7 @@ Reg Organizer 9.92 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065748.jpg" />
 </div>
 
 
@@ -684,6 +632,60 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D28812BFADBAFDF4F6BEE5E1426BB05382B50E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865476   (1065747) от 
+
+Office Tool Plus 11.2.19.0 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tool Plus - функциональная программа для работы с Office от компании Microsoft. Позволит вам выполнить модернизацию текущего офиса, допустим изменить канал обновления, если есть желание возможно удалить лишние языковые пакеты, можно сам офис полностью удалить из системы. Плюс у вас не будет больше проблем с активацией, теперь максимально легко установить ключ (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F5F78E9B9441982FC839FE44258E0CBCAC8C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865480   (1065745) от 
+
+Lansweeper 12.7.1.1 [En]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lansweeper — это интеллектуальный слой, разделяющий хаос данных и процесс принятия решений.
+
+Lansweeper — это инструмент автоматического обнаружения сети и управления активами, который сканирует все ваши компьютеры и устройства и отображает их в легкодоступном веб-интерфейсе. Нет необходимости устанавливать на компьютеры какие-либо агенты, все сканирование осуществляется (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FA329C504CD5204D39808E4320D2F1A8A3F014
 ```
 
 https://mybot314.ru/tekegram_catalog/

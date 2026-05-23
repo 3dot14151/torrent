@@ -1,133 +1,3 @@
-###  Публикация: 1863392   (1063520) от 04.04.2026
-
-pdfFactory Pro 9.25 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178F3191EE1998FF7FB1821B80954774CE0BA225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863393   (1063519) от 04.04.2026
-
-FinePrint 12.25 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-FinePrint - многофункциональный драйвер для принтеров, значительно расширяющий возможности любых принтеров при печати документов: предпросмотр, печать нескольких страниц на одном листе, распечатка брошюр, автовставка заголовка и "подвала", создание фирменных бланков, подложек, рамочек и многое другое. FinePrint работает со всеми моделями принтеров, являясь, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1170558EA5A2E3A2EDAFA5A1AB6CACF5E3D716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863338   (1063518) от 04.04.2026
-
-eM Client 10.4.5298.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-eM Client - мощный клиент электронной почты. Помимо основного функционала, необходимого для полноценной работы с e-mail корреспонденцией (прием, отправка, чтение, написание, удаление, переадресация, сортировка, массовая рассылка электронных писем), он имеет в своем арсенале множество новинок. В их числе отличный мультифункциональный органайзер со встроенной адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9ED2395EF76758036C4E7B2031D7EAA827124D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863337   (1063516) от 04.04.2026
-
-Process Lasso Pro 18.0.0.68 (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6B3092273050E35B9411D0AAA3FBDC851D2771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863326   (1063509) от 04.04.2026
-
-Net Monitor For Employees Pro 6.6.3 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Net Monitor for Employees Professional — это программа для удалённого мониторинга и контроля компьютеров сотрудников в офисе.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A534B7E574100FED9FA00A931AB7C45949FEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863405   (1063503) от 04.04.2026
 
 eM Client 10.4.5298.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -136,7 +6,7 @@ eM Client 10.4.5298.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063503.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ Mailbird Premium 3.0.53 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063502.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ Adobe Acrobat Pro 2026.001.21367 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063500.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ Opera GX 129.0.5823.64 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063485.jpg" />
 </div>
 
 
@@ -243,7 +113,7 @@ Eassos DiskGenius Professional 6.0.1.1645 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063472.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ Icaros 3.3.5 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063469.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ Auslogics File Recovery 12.1.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063466.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ Directory List & Print Pro 4.42 RePack (& Portable) by elchupacabra [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063463.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ FolderSizes Enterprise 9.8.584 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063459.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ ExamDiff Pro 16.0.1.23 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063458.jpg" />
 </div>
 
 
@@ -399,7 +269,7 @@ uTorrent 3.6.0 Build 47228 Portable by Alexandr1235 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063453.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063441.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ Kingston SSD Manager 1.5.6.3 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063435.jpg" />
 </div>
 
 
@@ -478,7 +348,7 @@ RadioMaximus 2.33.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063431.jpg" />
 </div>
 
 
@@ -504,7 +374,7 @@ Eclipse Community - r3dfox 148.0.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063425.jpg" />
 </div>
 
 
@@ -532,7 +402,7 @@ Mullvad Browser 15.0.8 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063424.jpg" />
 </div>
 
 
@@ -558,7 +428,7 @@ Foxit PDF Editor Pro Subscription 2026.1.0.36452 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063423.jpg" />
 </div>
 
 
@@ -586,7 +456,7 @@ v2rayN 7.18.0 portable server presets [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063418.jpg" />
 </div>
 
 
@@ -612,7 +482,7 @@ PDF Shaper Ultimate 15.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063417.jpg" />
 </div>
 
 
@@ -638,7 +508,7 @@ AllDup 4.5.72 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063415.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ WinMerge 2.16.54.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063410.jpg" />
 </div>
 
 
@@ -677,6 +547,139 @@ WinMerge является весьма полезной для определе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA3F2A5D87CD6089B35B77A69E1E047045D4C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863554   (1063396) от 05.04.2026
+
+Text Edit Plus 15.8 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Text Edit Plus — это простой, но мощный текстовый редактор с полезными функциями. Это легкий инструмент, который позволяет пользователям легко создавать новые текстовые документы или изменять существующие. Приложение разработано как альтернатива Блокноту, предлагая более широкий набор функций.
+
+Программное обеспечение представляет собой редактор общего назначения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB245FB86C20C4AA52F4FE17AB31C8956E7D24BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863562   (1063377) от 05.04.2026
+
+IconTo Pro 7.6 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа, которая позволяет пользователю с легкостью сменить значок папки, раздела диска и типов файлов или сразу группы папок или разделов на любую, которую Вы укажете (ICO, PNG, JPG, DLL и др.), эти значки можно выбрать из своей коллекции, либо из поставляемых вместе с программой. Для удобства пользования программой, встроена пошаговая инструкция, которая показывает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D33241239525A8D23F41F175DD5E61B577DED16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863574   (1063370) от 05.04.2026
+
+ASCOMP BackUp Maker Pro 8.404 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063370.jpg" />
+</div>
+
+
+###  Подробнее
+
+BackUp Maker может создать резервную копию любой папки на жестком диске. Если же из этой папки нужно скопировать только конкретные файлы, то можно воспользоваться фильтром файлов, который позволит указать, какие типы файлов должны, а какие не должны попасть в бэкап. Можно также установить лимит на размер файлов.
+Программа может сжимать копируемые данные в архивы. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A2FB22C2E9E6A324154E58B8B1BC4345F085F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863576   (1063369) от 05.04.2026
+
+WinCHM Pro 5.57 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063369.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCHM - небольшая утилита для создания файлов помощи, книг или журналов в формате HTML, CHM, Web help, PDF и Word файлов. Для работы в программе не обязательно обладать знаниями HTML, можно писать и редактировать текст так же как вы делаете это в Word, редактируя уже готовые документы CHM или создавая свои. Имеется визуальный дизайнер CHM и возможность редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBCBB1F8F166038C51797B73CF65B52E80A9663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863629   (1063346) от 05.04.2026
+
+Soft Organizer Pro 10.36 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9C7473C8E9C759BB22C3C5C3C9A953574FBEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

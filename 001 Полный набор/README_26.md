@@ -1,29 +1,3 @@
-###  Публикация: 1871377   (1069529) от 
-
-Криминальное прошлое / Criminal Record (2026) WEB-DL [H.265/2160p] [4K, HDR10+, DV 8, 10-bit] (сезон 2, серии 1-4 из 8) HDRezka, Red Head Sound, LE-Production (обновляемая)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Убийство юноши на политическом митинге вынуждает непримиримых детективов Джун Ленкер и Дэниела Хегарти заключить шаткое перемирие. Рутинное расследование быстро перерастает в опасную тайную операцию. Полицейским предстоит предотвратить масштабный теракт ультраправых группировок в центре Лондона.Производство: Великобритания, США / STV Productions, Tod ProductionsЖанр: триллер, драма, криминалРежиссер: Джим Лоуч, Шон Джеймс ГрантАктеры: Питер Капальди, Каш Джамбо, Шон Дули, Чарли Крид-Майлз, Стеффан Сеннид, Чиззи Акудолу, Анна Уилсон-Джонс, Анна Франколини, Сиа Алипур, Зои УонамейкерПеревод: Многоголосый (HDRezka, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198C7817322FD9CC0217BDBDE9E57500196688D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871369   (1069528) от 
 
 White Gamedev Academy, Илья Темин | Создание 3D-персонажа супергероя (2021) PCRec [AD] [RU]
@@ -32,7 +6,7 @@ White Gamedev Academy, Илья Темин | Создание 3D-персона�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069528.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069527.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069526.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Rogue Command (2026) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069525.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069524.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Farthest Frontier (2022) [Ru/Multi] (1.1.1/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069523.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ The Caribou Trail (2026) [Ru/Multi] (1.0.334) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069522.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069521.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069520.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069519.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ PhoXoSee 1.12 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069518.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Internet Download Manager 6.42 Build 64 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069517.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069516.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069515.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ VA - Compilation House Deep 2025 Various Artist (2026) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069514.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069513.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069512.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ VA - The Sound Of Solomonari Festival 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069511.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069510.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ Free Download Manager 6.34.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069509.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ FontViewOK 9.33 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069508.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069507.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069506.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069505.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069504.jpg" />
 </div>
 
 
@@ -680,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8C25DB81965D809F04EB7C2CC85C7A8F7E59D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870930   (1069503) от 
+
+NG: Дэвид Аттенборо: Океан / Океан с Дэвидом Аттенборо / Ocean with David Attenborough (2025) WEB-DL [H.265/2160p] [4K, DV 5, 10-Bit] [MVO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069503.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Океан с Дэвидом Аттенборо» — это документальный фильм, где великий натуралист приглашает нас в сердце Мирового океана. В свои 99 лет Аттенборо подводит итог десятилетиям наблюдений, открывая перед нами не только завораживающую красоту подводного мира, но и тревожные признаки его разрушения. С помощью впечатляющих съёмок в открытых водах, на коралловых рифах и в (   Читать дальше...   )Производство: Великобритания / All3Media International, National Geographic Society, Silverback FilmsЖанр: ДокументальныйРежиссер: Колин Батфилд, Тоби Ноулан, Кит ШолейУчастники: Дэвид АттенбороПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163E9D6436DAD00F9F0ED1D6B25C354A94638218
 ```
 
 https://mybot314.ru/tekegram_catalog/

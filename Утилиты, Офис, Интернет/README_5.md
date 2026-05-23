@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.1.5.3 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069196.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vdigger GetFLV 32.2605.08 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069192.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FreeCommander XE 2026 Build 948 RePack by AMPED [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069190.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Vivaldi 7.9.3970.64 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069151.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IsoBuster Pro 5.8 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069146.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Journal 8.0.0.1347 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069137.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Browser Tamer 5.6.9 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069122.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PDF Suite Pro 20.0.55.21555 + Modules [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069064.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NTFS Permissions Reporter Enterprise 5.3.687 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069051.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069050.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Revo Uninstaller Free 2.7.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069046.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Firefox Browser 150.0.3 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069035.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mozilla Thunderbird 150.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069032.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Q-Dir 12.63 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069030.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Atlantis Word Processor 5.0.4.0 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069029.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Windows Manager 2.3.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069028.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069027.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Mailbird Premium 3.0.58.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069026.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ QR-Code Creator 7.6.1.5 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069024.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Duplicate Cleaner Pro 5.27.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069022.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Filmex 3.1.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069021.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Emurasoft EmEditor Professional 26.1.0 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069020.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Zentimo xStorage Manager 3.4.1.1304 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069017.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Zentimo xStorage Manager 3.4.1.1304 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069016.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ USB Safely Remove 7.4.1.1336 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069015.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ USB Safely Remove 7.4.1.1336 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069014.jpg" />
 </div>
 
 

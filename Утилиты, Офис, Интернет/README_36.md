@@ -1,161 +1,3 @@
-###  Публикация: 1861332   (1062557) от 25.03.2026
-
-Brave Browser 1.88.136 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0D41588723E184ED6909F2A07C8884B8DA1CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861333   (1062555) от 25.03.2026
-
-DesktopNoteOK 4.44 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-DesktopNoteOK – простая портативная программа для создания небольших текстовых заметок прямо на рабочем столе компьютера, чтобы они всегда были на виду и под рукой.
-В программе DesktopNoteOK присутствует возможность кастомизировать внешний вид заметок (цвет, шрифт, размер, прозрачность и прочее).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC10661231F1301B6EEF76D1DB59CBCDAE243F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861324   (1062554) от 27.03.2026
-
-FNDup 2.0 [Ru/En] (Авторская раздача)
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-FNDup (Files & Names Duplicate) - программа для поиска дубликатов файлов и папок на основе сравнения их названий, а также методом быстрого сканирования (Fast Scan) который позволяет обрабатывать большой объем данных за меньший промежуток времени. В отличии от других программ для поиска дубликатов, которые ищут точные дубликаты сверяя файлы байт в байт, FNDup (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E16AA9F273DA529C911D56994EADF5A1A9A700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861340   (1062552) от 25.03.2026
-
-GetWindowText 5.29 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-GetWindowText - маленькая и портативная программа, с помощью которой вы можете прочитать и скопировать текст из таких окон и элементов интерфейса откуда это обычными средствами сделать невозможно.
-Перетащите значок GetWindowText, из окна программы, на элемент другого окна откуда вы хотите прочитать текст и, если это вообще возможно, в окне GetWindowText отобразится (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B726FDA09E2939AAA7AF05C783F86B8C5F9AE32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861341   (1062551) от 25.03.2026
-
-GetPixelColor 3.49 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Эта программа подходит для графических дизайнеров, веб-мастеров и тех, кто хочет ими стать, чтобы определить цвет пикселя рабочего стола. Но даже если у вас нет необходимости определять значения цветов, вы можете в игровой форме познакомиться и понять цветовое пространство RGB, особенно подходящее для школ или других целей. Например, чтобы узнать, какой цвет пикселя (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB38264264D3796C3BF6075C5E502E7C10D6675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861349   (1062548) от 25.03.2026
-
-IObit Driver Booster Pro 13.3.0.229 Portable by FC Portables [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6483B0C4361EAFC132567BB0188BF9A31920B490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861352   (1062546) от 25.03.2026
 
 Sumatra PDF 3.7.17694 Prerelease + Portable [Multi/Ru]
@@ -164,7 +6,7 @@ Sumatra PDF 3.7.17694 Prerelease + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062546.jpg" />
 </div>
 
 
@@ -191,7 +33,7 @@ Total Commander 11.57 RC1 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062518.jpg" />
 </div>
 
 
@@ -217,7 +59,7 @@ qBittorrent 5.1.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062510.jpg" />
 </div>
 
 
@@ -244,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062498.jpg" />
 </div>
 
 
@@ -270,7 +112,7 @@ Vivaldi 7.9.3970.45 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062490.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ MAX Desktop 26.10.0 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062489.jpg" />
 </div>
 
 
@@ -322,7 +164,7 @@ CoolUtils Total Doc Converter 5.1.0.379 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062452.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ CoolUtils Total Excel Converter 7.1.0.111 RePack (& Portable) by elchupacabra [M
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062449.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ Any Video Downloader Pro 10.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062447.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ Google Chrome 146.0.7680.165 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062437.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ Desktop.Calendar.Tray.OK 4.48 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062436.jpg" />
 </div>
 
 
@@ -453,7 +295,7 @@ OCCT 16.1.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062431.jpg" />
 </div>
 
 
@@ -479,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062425.jpg" />
 </div>
 
 
@@ -505,7 +347,7 @@ Advanced SystemCare Pro 19.3.0.200 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062422.jpg" />
 </div>
 
 
@@ -531,7 +373,7 @@ Zentimo xStorage Manager 3.3.1.1303 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062411.jpg" />
 </div>
 
 
@@ -557,7 +399,7 @@ Opera One 129.0.5823.28 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062410.jpg" />
 </div>
 
 
@@ -583,7 +425,7 @@ Opera GX 129.0.5823.26 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062401.jpg" />
 </div>
 
 
@@ -611,7 +453,7 @@ WinRAR 7.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062393.jpg" />
 </div>
 
 
@@ -637,7 +479,7 @@ SoftPerfect RAM Disk 26.2 RePack by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062392.jpg" />
 </div>
 
 
@@ -663,7 +505,7 @@ IObit Driver Booster Pro 13.3.0.229 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062358.jpg" />
 </div>
 
 
@@ -674,6 +516,165 @@ Driver Booster сканирует и определяет устаревшие �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:286A80C8462F5565A2EAE714BFF7B22F6EF2DE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861618   (1062355) от 26.03.2026
+
+Windows Manager 2.3.5 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
+Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EC6AA3E255269108E38F09201332664D4A2485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861111   (1062327) от 24.03.2026
+
+Screenpresso Pro 2.2.8 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screenpresso - легкий в использовании инструмент для создания скриншотов со встроенным редактором изображений и возможностью размещения готовых изображений в сети Интернет. С помощью программы можно делать снимки всего экрана, его части, конкретного окна (в том числе и с прокруткой), а также осуществлять захват видео высокого разрешения, с сохранением в форматы MP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A269069FC8219D8028A13FBA48BAC9E7DDE062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861122   (1062324) от 24.03.2026
+
+DVDFab 13.0.5.7 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062324.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab – мощный, многофункциональный программный продукт для копирования DVD дисков с возможностями гибкой обработки видеопотока.
+Программа является одной из лучших на сегодняшний день, из инструментов для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами.
+Снимает все защиты и ограничения с диска и при желании пережмет диск большой емкости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D45B9E24CDF1015977290D7C396CCED8380F3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861133   (1062314) от 24.03.2026
+
+AIDA64 Extreme Edition 8.25.8217 Beta Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062314.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A77BE47A6C01BB2AA7466B55EEADD0D50E0428D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861177   (1062299) от 24.03.2026
+
+MAX Desktop 26.9.1 [Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8CFB6ECAF6F324F5FE00A6525781A5096620BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860932   (1062279) от 23.03.2026
+
+MediaHuman YouTube Downloader 3.9.19 (1803) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062279.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034C155DD6CE01D537C32B61FB8C36099D1C13AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

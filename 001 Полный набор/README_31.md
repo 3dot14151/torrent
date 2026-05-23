@@ -1,61 +1,3 @@
-###  Публикация: 1871187   (1069394) от 
-
-Aurum Project - Out Of The Shadows (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need Is You (5:29)
-02. Broken Wings (5:16)
-03. Dance With Me Tonight (4:49)
-04. Dancing Like The World Ends At Dawn (3:16)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CC2A0F7D5EA808A21F8F8C9149274750EB514D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871184   (1069393) от 
-
-Aurum Project - Let The Party Go On (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-01. Forever In Your Eyes (3:42)
-02. Only You My Love (3:39)
-03. Midnight Lover (3:44)
-04. Hope (3:21)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834075BCCC671F524D5651A6A8D13C02F68FB16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871181   (1069392) от 
 
 Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
@@ -64,7 +6,7 @@ Aurum Project - Hunters Of The Night (2025) [MP3|320 Kbps] <Disco, Dance, AI Mus
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069392.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069391.jpg" />
 </div>
 
 
@@ -119,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069390.jpg" />
 </div>
 
 
@@ -145,7 +87,7 @@ Aurum Project - Just Like An Angel (2026) [MP3|320 Kbps] <Disco, Dance, AI Music
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069389.jpg" />
 </div>
 
 
@@ -174,7 +116,7 @@ Vengaboys - The Platinum Album (2000) [FLAC|Lossless|tracks] <Europop, Euro Hous
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069388.jpg" />
 </div>
 
 
@@ -203,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069387.jpg" />
 </div>
 
 
@@ -232,7 +174,7 @@ Underling Uprising (2026) [Ru/Multi] (1.0.0.404) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069386.jpg" />
 </div>
 
 
@@ -258,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069385.jpg" />
 </div>
 
 
@@ -285,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069384.jpg" />
 </div>
 
 
@@ -311,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069383.jpg" />
 </div>
 
 
@@ -337,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069382.jpg" />
 </div>
 
 
@@ -363,7 +305,7 @@ optimizerDuck 2.13.3 Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069381.jpg" />
 </div>
 
 
@@ -389,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069380.jpg" />
 </div>
 
 
@@ -415,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069379.jpg" />
 </div>
 
 
@@ -441,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069378.jpg" />
 </div>
 
 
@@ -467,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069377.jpg" />
 </div>
 
 
@@ -493,7 +435,7 @@ Desktop Noodle 2.0.0.3 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069376.jpg" />
 </div>
 
 
@@ -519,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069375.jpg" />
 </div>
 
 
@@ -545,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069374.jpg" />
 </div>
 
 
@@ -571,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069373.jpg" />
 </div>
 
 
@@ -597,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069372.jpg" />
 </div>
 
 
@@ -623,7 +565,7 @@ muCommander 1.6.2 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069371.jpg" />
 </div>
 
 
@@ -651,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069370.jpg" />
 </div>
 
 
@@ -677,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069369.jpg" />
 </div>
 
 
@@ -688,6 +630,62 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6AA0107CC6918B4BD67F787F70D36CF5E56681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871241   (1069368) от 
+
+Любовь с того света / L'Ame ideale / The Ideal Soul (2025) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сорокалетняя Эльза давно смирилась с одиночеством. Отношения не складываются из-за её пугающего дара видеть призраков. Однако знакомство с обаятельным Оскаром пробуждает в ней угасшую надежду и заставляет поверить в то, что некоторые истории любви не умирают.Производство: Франция / Les Films entre 2 et 4, Gaumont, TF1 Films Production, TF1Жанр: драма, мелодрама, комедияРежиссер: Алис ВьяльАктеры: Джонатан Коэн, Магали Лепин Блондо, Флоранс Янас, Жан-Кристоф Фолли, Анн Бенуа, Софьян Герраб, Афида Тахри, Эрик Наггар, Нина Абутаджедин, Франсуа КретонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: русские (full - AI), французские (full, SDH)Продолжительность: 01:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31373F586FCD509DA13FCC497908AECB07A1BFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870652   (1069367) от 
+
+Daita (Daitah Itoh) - EUPHONY (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японский рок гитарист Daita (Daitah Itoh) родился в районе Токио в 1971 году.
+DVD диск Euphony издан в 2003 году и состоит из музыкальных произведений автора. Манера игры - один из столпов японского гитарного рока чем-то напоминает Joe Satriani времен Flying In A Blue Dream, но вот окружение… В нем слышно и электронную музыку, и металл, и даже классическую музыку, (   Читать дальше...   )1. Breath of the Sea
+2. Earth Beat
+3. Suna no Shiro
+4. Zenith(   Читать дальше...   )Производство: ЯпонияЖанр: RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0A0564FD19642B857DB91C82A730AE7F9F0282
 ```
 
 https://mybot314.ru/tekegram_catalog/

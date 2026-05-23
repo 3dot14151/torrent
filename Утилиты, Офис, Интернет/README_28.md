@@ -1,133 +1,3 @@
-###  Публикация: 1862757   (1063929) от 01.04.2026
-
-Glary Utilities Pro 6.40.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128C2B9F81A7A6B67E79021CFBE50ED86648923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862760   (1063928) от 01.04.2026
-
-R-Studio Network 9.5 Build 191733 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B107FC089E63BD9102B03ADC0F7CB9395CD710E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862767   (1063927) от 01.04.2026
-
-VCap Downloader 0.1.47.7035 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-VCap Downloader (VCapDL) – это универсальное программное обеспечение, позволяющее захватывать видео и аудио с интернет-сайтов. Интерфейс программы напоминает интерфейс обычного браузера, что облегчает пользователю знакомство и работу с этим программным обеспечением. Пользователю просто нужно скопировать URL видео из любимого браузера и перенести его в VCap Downloader. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B71386DF791C91880C78E52DE9109B0A4567B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862773   (1063925) от 01.04.2026
-
-StartAllBack 3.9.22.5362 (3.6.16.4729) StartIsBack 2.9.21 (2.9.1) / 1.7.6 / 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA40DBD6062C04BAE309D5AD8E644407CFEA2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862811   (1063910) от 01.04.2026
-
-Hard Disk Sentinel Pro 6.40 Build 13782 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:951402421AA70C185A48ABB4D48E8649E8E96C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862765   (1063907) от 01.04.2026
 
 R-Wipe & Clean 20.0.2554 RePack (& Portable) by elchupacabra [Ru/En]
@@ -136,7 +6,7 @@ R-Wipe & Clean 20.0.2554 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063907.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ Vivaldi 7.9.3970.47 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063906.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ Heaventools Resource Tuner 2.31 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063887.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ Any Video Downloader Pro 10.3.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063885.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ Hard Disk Sentinel Pro 6.40 Build 13782 RePack (& Portable) by Dodakaedr [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063861.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ Tor Browser Alpha 16.0a4 + Tor Service Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063857.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ Hetman Partition Recovery 5.2 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063856.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063855.jpg" />
 </div>
 
 
@@ -344,7 +214,7 @@ MiniTool Partition Wizard All Editions 13.6 RePack (& Portable) by Dodakaedr [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063854.jpg" />
 </div>
 
 
@@ -370,7 +240,7 @@ LibreWolf 149.0-1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063844.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063841.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ Wise Care 365 Pro 7.3.5.722 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063832.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ MathType 7.11.1.462 RePack by KpoJIuK [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063822.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ Uninstall Tool 3.8.1 Build 5740 RePack (& Portable) by Dodakaedr
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063819.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ MediaHuman YouTube Downloader 3.9.19 (1803) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063815.jpg" />
 </div>
 
 
@@ -528,7 +398,7 @@ TweakNow WinSecret Plus! 8.8.2 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063813.jpg" />
 </div>
 
 
@@ -555,7 +425,7 @@ YT Downloader 10.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063811.jpg" />
 </div>
 
 
@@ -581,7 +451,7 @@ Privacy Eraser Free 6.28.0 Build 5520 RePack (& Portable) by elchupacabra [Multi
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063806.jpg" />
 </div>
 
 
@@ -608,7 +478,7 @@ Icecream PDF Editor Pro 3.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063804.jpg" />
 </div>
 
 
@@ -634,7 +504,7 @@ Icecream PDF Editor Pro 3.30 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063803.jpg" />
 </div>
 
 
@@ -660,7 +530,7 @@ ASCOMP Synchredible Pro 9.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063802.jpg" />
 </div>
 
 
@@ -672,6 +542,138 @@ Synchredible - синхронизирует, копирует и сохраня�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F08291CEE250C9FB88BBB42E0A344F368105C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862989   (1063800) от 02.04.2026
+
+The Bat! Professional 12.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063800.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D34BFFD6BB1C45EBE5DA6AE11E267BC4487D6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862997   (1063798) от 02.04.2026
+
+Mailbird Pro 3.0.53 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mailbird - это простой, удобный и главное быстрый клиент электронной почты для вашего ПК. Mailbird упакован приложениями, функциями, горячими клавишами и обновлениями для оптимизации производительности, тем самым вы сможете сэкономить несколько часов в Вашем почтовом ящике.
+Интерфейс программы минимально прост, но красив. Слева представлены все папки и ярлыки вашего (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE261A2649A26F6AFF865D61C3A23890535E0DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862999   (1063797) от 02.04.2026
+
+Resource Tuner 2.31 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Tuner — это программный инструмент, разработанный для помощи пользователям в настройке исполняемых файлов Windows 32/64-битных систем, таких как EXE, DLL, MUN и другие. Resource Tuner позволяет просматривать, извлекать, добавлять, заменять, редактировать и удалять встроенные ресурсы в исполняемых файлах, включая значки, строки, фоновые изображения, картинки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F00D6A940CF0E25234FBF325D2942A4A46EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862713   (1063793) от 02.04.2026
+
+Hasleo Backup Suite 5.6.2.1 Home | Home Family | Professional | Workstation | Server | Eterprise | Technician Editions [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hasleo Backup Suite — это программное обеспечение для Windows, которое выполняет резервное копирование файлов операционной системы или выбранного диска/логического раздела. Конечно же копированием дело не ограничивается и программа может восстановить файлы из резервной копии, а так же упростит переезд с одного диска на другой.
+В случае проблем с системой или повреждения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3B43602F242148FDC5175CBF72AB6715E53766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863018   (1063786) от 02.04.2026
+
+Chromium 146.0.7680.178 + Portable (x64) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC919CC010746D37B629A8B95D246035823E550E
 ```
 
 https://mybot314.ru/tekegram_catalog/

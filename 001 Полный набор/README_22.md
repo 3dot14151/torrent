@@ -1,29 +1,3 @@
-###  Публикация: 1871592   (1069634) от 
-
-Грязные деньги / In the Grey (2026) TC [H.264] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Когда безжалостный магнат Салазар присваивает себе миллиард долларов, отряд элитных агентов под управлением проницательной Рэйчел получает задание вернуть деньги любой ценой. Сид, Бронко и их соратники начинают воплощать стратегию давления на афериста, а затем отправляются на остров Салазара, где проявляют все свои навыки обращения с оружием и взрывчаткой. Однако (   Читать дальше...   )Производство: Великобритания, США / Black Bear International, C2 Motion Picture GroupЖанр: боевик, триллерРежиссер: Гай РичиАктеры: Джейк Джилленхол, Генри Кавилл, Эйса Гонсалес, Розамунд Пайк, Фишер Стивенс, Карлос Бардем, Джейсон Вон, Эммет Джей Скэнлэн, Кристофер Хивью, Кристиан ОчоаПеревод: Дублированный (Dragon Money Studio)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:32Реклама: Присутствуют вставки видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB6ADC3A56CBDF197F21A75E49744C3D0B609E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871538   (1069633) от 
 
 Microsoft Office 2016-2024 Volume Channel [v2408] [16.0.17932.20776] AIO (x86-x64) by adguard [Ru/En]
@@ -32,7 +6,7 @@ Microsoft Office 2016-2024 Volume Channel [v2408] [16.0.17932.20776] AIO (x86-x6
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069633.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Open Shell (Classic Shell) 4.4.198 + Utility [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069632.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069631.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Executor 2.3.4 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069630.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069629.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069628.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ Confess - Metalmorphosis (2026) [FLAC|Lossless|WEB-DL|tracks] <Sleaze, Glam Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069627.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069625.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ VA - Beat, Bass, Melody vol.5 (mixed by Dj V) (2026) [MP3|320 Kbps] <Euro Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069624.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Ai - Russian Poets Covers Compilation  Part 14 (2026) [MP3|320 Kbps] <Cover, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069623.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ Ai - Russian Poets Covers Compilation  Part 13 (2026) [MP3|320 Kbps] <Cover, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069622.jpg" />
 </div>
 
 
@@ -337,7 +311,7 @@ Dave Sandler - Favorites Collection (2026) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069621.jpg" />
 </div>
 
 
@@ -366,7 +340,7 @@ Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) ℗ 2026 Interscope Records 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069620.jpg" />
 </div>
 
 
@@ -395,7 +369,7 @@ PRAGMATA (2026) [Ru/Multi] (build 22357085/dlc) Repack SE7EN [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069619.jpg" />
 </div>
 
 
@@ -421,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069618.jpg" />
 </div>
 
 
@@ -447,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069617.jpg" />
 </div>
 
 
@@ -473,7 +447,7 @@ Hotel Architect (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069616.jpg" />
 </div>
 
 
@@ -499,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069615.jpg" />
 </div>
 
 
@@ -528,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069614.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069613.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069612.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069611.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069610.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069609.jpg" />
 </div>
 
 
@@ -687,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069608.jpg" />
 </div>
 
 
@@ -701,6 +675,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21F758196EB52F294254695E14BF97695BFD7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871271   (1069607) от 
+
+USBDeview 3.10 + Portable [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069607.jpg" />
+</div>
+
+
+###  Подробнее
+
+USBDeview — это небольшая утилита, которая отображает список всех USB-устройств, подключенных к вашему компьютеру в данный момент, а также всех USB-устройств, которые вы использовали ранее. Для каждого USB-устройства отображается расширенная информация: имя/описание устройства, тип устройства, серийный номер (для устройств хранения данных), дата/время добавления (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C6E2469F8147CD591F8750F0FBEB03D800E291
 ```
 
 https://mybot314.ru/tekegram_catalog/

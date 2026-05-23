@@ -6,7 +6,7 @@ Fan Control V267 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stardock Groupy 2.31 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068708.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Zen Browser 1.19.12 beta [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068706.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ GiliSoft Copy Protect 8.6.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068692.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ UPDF 2.5.2.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068691.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ LibreOffice 26.2.3.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068685.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wondershare PDFelement Pro 12.1.17.4188 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068675.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Supermium Browser 144.0.7559.249 R3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068674.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vim 9.2.0461 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068668.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Emurasoft EmEditor Professional 26.1.0 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068632.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Coodesker 1.1.0.6 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068630.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Firefox Browser 150.0.2 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068583.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Firefox Browser ESR 115.35.2 (Win 7-8) / 140.10.2 (Win 10-11)  Portable by Porta
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068575.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ X Drive Writer 1.1 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068570.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lazesoft Recovery Suite Pro / Server / Tech / Unlimited 5.2.0.1 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068554.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Duplicate Cleaner Pro 5.27.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068553.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ High-Logic FontCreator 16.0.0.3062 Portable by 7997 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068545.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ AnyDesk 9.7.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068526.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Total Commander 11.57 Final [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068523.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Chromium 148.0.7778.97 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068494.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Icecream Screen Recorder Pro 7.47 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068491.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ShareX 20.1.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068484.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Telegram Desktop 6.8.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068478.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Wondershare PDFelement Pro 12.1.17.4188 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068475.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Firefox Browser 150.0.2 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068472.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068465.jpg" />
 </div>
 
 

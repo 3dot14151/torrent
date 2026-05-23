@@ -6,7 +6,7 @@ PrivaZer Pro 4.0.121 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067877.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YT Downloader 10.3.11 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067875.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ qBittorrent 5.2.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067800.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyDesk 9.7.2 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067789.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Allavsoft Video Downloader Converter 3.29.1.9611 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067775.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Firefox Browser ESR 115.35.1 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067761.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Firefox Browser ESR 115.35.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067754.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Activation Scripts (MAS) 3.11 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067752.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Wipe & Clean 20.0.2558 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067747.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ TechSmith Camtasia 26.1.2 Build 16723 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067746.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TechSmith SnagIt 2026.2.1 build 10855 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067745.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MiniTool Power Data Recovery 12.9 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067742.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MITorrent Client 0.1.6 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067735.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ WinRAR 7.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067734.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Auslogics SSD Optimizer Pro 2.2.0.6 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067733.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Auslogics Registry Cleaner Pro 11.2.0.6  + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067732.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Auslogics File Recovery Pro 12.2.0.6 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067731.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Auslogics Disk Defrag Pro 12.2.0.6 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067730.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ PDFsam Basic 6.0.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067720.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Firefox Browser 150.0.1 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067717.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Auslogics Windows Slimmer 5.2.0.6 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067716.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Auslogics BoostSpeed Pro 14.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067715.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Auslogics Duplicate File Finder Pro 11.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067714.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Auslogics Registry Defrag 15.2.0.6 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067713.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Foxit PDF Editor Pro Subscription 2026.1.1.36485 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067676.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Kudu 1.40.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067675.jpg" />
 </div>
 
 

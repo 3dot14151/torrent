@@ -1,211 +1,3 @@
-###  Публикация: 1858345   (1060280) от 10.03.2026
-
-Firefox Browser 148.0.2 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EA4727082FDF64328A98F58812DBA4F31957B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858299   (1060275) от 11.03.2026
-
-Zapret-discord-youtube by Flowseal (04.03.2026) 1.9.7b [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-Zapret Service Manager — это мощный инструмент для обхода DPI-блокировок и восстановления доступа к замедленным ресурсам (YouTube, Discord и др.) на базе легендарного движка Zapret. Программа модифицирует сетевые пакеты таким образом, что системы провайдера перестают распознавать целевой ресурс, обеспечивая свободный доступ к сети без использования сторонних серверов. (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E063936B43198C8E7CB84284FD40C794FB216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858352   (1060272) от 10.03.2026
-
-Glary Utilities Pro 6.39.0.43 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CDF66F8E81DBD80DAF5C78CCC85BB383D114CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858358   (1060259) от 10.03.2026
-
-MediaHuman YouTube Downloader 3.9.18 (0703) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03CD9DC725C878E6EF6B19A16DDFFF1756691DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858361   (1060256) от 10.03.2026
-
-PowerISO 9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1C8A3DAB5B69C638F0BB2307B17486DFD1747E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858362   (1060255) от 10.03.2026
-
-DLNow Video Downloader 1.54.2026.03.05 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-DLNow Video Downloader - быстрое, полезное, практичное и мощное приложение, которое позволит вам легко загружать видеоконтент из Интернета и основных социальных сетей. DLNow Video Downloader имеет чистый и простой интерфейс. DLNow Video Downloader позволяет сохранять загруженные видео в различных форматах, включая .mpeg, .avi, .flv, .wmv. Все, что вам нужно сделать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DFF231BA2E5F1F903F65B537AF29B2E363ABA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858364   (1060249) от 10.03.2026
-
-Master PDF Editor 5.9.97 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5DEAADF40C1ED28659B6B008328F740D1877E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858371   (1060244) от 10.03.2026
-
-MassTube Ultra 21.5.2.193 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
-</div>
-
-
-###  Подробнее
-
-MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F5B4A44613062D439012053CE17C1189BCE6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858373   (1060243) от 10.03.2026
 
 4K Video Downloader+ 26.0.6.291 (& Portable) by elchupacabra [Multi/Ru]
@@ -214,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060243.jpg" />
 </div>
 
 
@@ -240,7 +32,7 @@ Throne (ex. NekoRay / NekoBox) 1.1.1 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060242.jpg" />
 </div>
 
 
@@ -268,7 +60,7 @@ Glary Utilities Pro 6.39.0.43 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060239.jpg" />
 </div>
 
 
@@ -294,7 +86,7 @@ MobaXterm 26.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060235.jpg" />
 </div>
 
 
@@ -320,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060227.jpg" />
 </div>
 
 
@@ -346,7 +138,7 @@ MediaHuman YouTube Downloader 3.9.18 (0703) (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060161.jpg" />
 </div>
 
 
@@ -372,7 +164,7 @@ Bitsum ParkControl Pro 5.5.2.8 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060033.jpg" />
 </div>
 
 
@@ -398,7 +190,7 @@ MyLanViewer 6.7.7 Enterprise / Business RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1060030.jpg" />
 </div>
 
 
@@ -424,7 +216,7 @@ Reg Organizer 9.91 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060029.jpg" />
 </div>
 
 
@@ -450,7 +242,7 @@ PrivaZer Pro 4.0.119 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060018.jpg" />
 </div>
 
 
@@ -476,7 +268,7 @@ Youtube Downloader HD 5.9.9.9 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005/" />
+  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060016.jpg" />
 </div>
 
 
@@ -502,7 +294,7 @@ MyLanViewer 6.7.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059952.jpg" />
 </div>
 
 
@@ -528,7 +320,7 @@ MAX Desktop 26.7.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059933.jpg" />
 </div>
 
 
@@ -554,7 +346,7 @@ Process Explorer 17.1 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059920.jpg" />
 </div>
 
 
@@ -580,7 +372,7 @@ Macrorit Partition Expert 8.9.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059913.jpg" />
 </div>
 
 
@@ -606,7 +398,7 @@ Quick CPU 6.3.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009/" />
+  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059911.jpg" />
 </div>
 
 
@@ -632,7 +424,7 @@ pdfFactory Pro 9.24 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059910.jpg" />
 </div>
 
 
@@ -658,7 +450,7 @@ FinePrint 12.24 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059907.jpg" />
 </div>
 
 
@@ -669,6 +461,216 @@ FinePrint - многофункциональный драйвер для при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB609158E3EDF612ED607C009C4849D3B279ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857689   (1059904) от 07.03.2026
+
+Reg Organizer 9.91 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Microsoft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр импортируемых (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE61C572EB371981E307226070F970E62AD0C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857701   (1059901) от 07.03.2026
+
+Icecream PDF Candy Desktop Pro 3.17  [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059901.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Candy Desktop — универсальный инструмент, который позволит Вам конвертировать PDF файлы в различные форматы (PDF в DOC, PDF в JPG и т. д.), конвертировать документы, электронные книги и изображения в PDF, склеивать и разбивать PDF, извлекать изображения и текст из PDF, редактировать метаданные, защитить PDF паролем или снять пароль с защищенных файлов. Большинство (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2CE8CEFAC59D1FAC5D1A7268395789889D9AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857712   (1059889) от 07.03.2026
+
+Reg Organizer 9.91 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98BC62EBB37E10C8340768574FA409D06AE41EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857738   (1059865) от 07.03.2026
+
+Reg Organizer 9.91 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD25CFFC7C8E96AE330E355F986BCE89ADCFA7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857770   (1059846) от 07.03.2026
+
+WizTree Enterprise 4.30 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059846.jpg" />
+</div>
+
+
+###  Подробнее
+
+WizTree - небольшая и полезная утилита для определения файлов и папок, которые занимают много пространства на жестком диске. Особенностью данного приложения является его высокая производительность анализа дискового пространства благодаря прямому взаимодействию с главной файловой таблицей, которая содержит подробную информацию о содержимом носителя. Интерфейс программы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD0FEA1A1121318D02ED27CB19A72AB50AE6A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857785   (1059837) от 07.03.2026
+
+MyLanViewer 6.7.7 Enterprise + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059837.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12CD7AEB08F68477DCBAFCE343F8964E9E0814C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857802   (1059831) от 07.03.2026
+
+OneCommander Pro 3.108.0.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059831.jpg" />
+</div>
+
+
+###  Подробнее
+
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательнее, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F0961D028ADBAF27B18770830D74D46A8BE97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857812   (1059824) от 07.03.2026
+
+Windows Manager 2.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
+Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161CCE7E04C9FC30B9FA95E80C70A70387366A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

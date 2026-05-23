@@ -1,29 +1,3 @@
-###  Публикация: 1868572   (1067551) от 01.05.2026
-
-ShareX 20.0.4 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-ShareX - программа для снятия снимков и видеозахвата экрана. Утилита скрывает в себе кучу функций, она умеет создавать как скриншоты всего экрана, так и снимки выделенных областей экрана, причем помимо традиционной прямоугольной области можно выделять и различные геометрические фигуры, в том числе и произвольной формы. После создания снимка Вы можете задать ряд операций, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FAED7588A5C77D1E48B6C7E965618F8E0E18E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868582   (1067537) от 01.05.2026
 
 Mozilla Thunderbird 150.0.1 [Ru]
@@ -32,7 +6,7 @@ Mozilla Thunderbird 150.0.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067537.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Brave Browser 1.89.145 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067520.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Easy File Shredder 2.0.2026.428 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067499.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Bulk Image Downloader 6.63 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067497.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ High-Logic FontCreator 16.0.0.3060 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067489.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ Free YouTube Download Premium 4.5.13.428 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067486.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ WinRAR 7.21 Final [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067484.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Rufus 4.14 (Build 2377) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067468.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Q-Dir 12.62 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067467.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067464.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067457.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ UniGetUI 2026.1.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067448.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Mullvad Browser 15.0.11 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067446.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Microsoft PowerToys 0.99.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067439.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ Auslogics File Recovery 12.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067437.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ Allavsoft Video Downloader Converter 3.29.1.9611 RePack (& Portable) by Dodakaed
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067436.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ Auslogics Registry Cleaner 11.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067435.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ Auslogics SSD Optimizer 2.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067434.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ Auslogics Windows Slimmer 5.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067433.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Auslogics BoostSpeed 14.2.0.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067432.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067431.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ SoftMaker FlexiPDF 2025.418.0425 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067415.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 + Portabl
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067404.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ AutoHideDesktopIcons 6.69 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067403.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ Video Repair Tool 5.0.0.1 [En/Chn]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067394.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ Video Repair Tool 5.0.0.1 [En/Chn]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D97D99AE677AC6322E88825D970546A76EC6C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868107   (1067384) от 
+
+Windows 10 Debloater 3.0.1 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Debloater – небольшая утилита для тонкой настройки Windows 10. С ее помощью можно отключить различные службы (в том числе и телеметрию), удалить встроенные приложения, скрыть различные иконки, настроить контекстное меню и многое другое.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184A8AF27A16CF33079FD003063BC60EBB9AC003
 ```
 
 https://mybot314.ru/tekegram_catalog/

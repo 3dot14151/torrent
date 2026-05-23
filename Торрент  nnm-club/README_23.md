@@ -1,29 +1,3 @@
-###  Публикация: 1871271   (1069607) от 
-
-USBDeview 3.10 + Portable [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-USBDeview — это небольшая утилита, которая отображает список всех USB-устройств, подключенных к вашему компьютеру в данный момент, а также всех USB-устройств, которые вы использовали ранее. Для каждого USB-устройства отображается расширенная информация: имя/описание устройства, тип устройства, серийный номер (для устройств хранения данных), дата/время добавления (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C6E2469F8147CD591F8750F0FBEB03D800E291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871273   (1069606) от 
 
 Fast Downloader 0.8.5 [Multi/Ru]
@@ -32,7 +6,7 @@ Fast Downloader 0.8.5 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069606.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069605.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069604.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069603.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069602.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069601.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069600.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069599.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ HWdetails 1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069598.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069597.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ RisohEditor 5.9.8 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069596.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069595.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ Lady Gaga - Apple Music Live: Behind the Scenes of Lady Gaga's MAYHEM Requiem (2
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069594.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069593.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069592.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069591.jpg" />
 </div>
 
 
@@ -465,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069590.jpg" />
 </div>
 
 
@@ -494,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069589.jpg" />
 </div>
 
 
@@ -520,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069588.jpg" />
 </div>
 
 
@@ -549,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069587.jpg" />
 </div>
 
 
@@ -575,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069586.jpg" />
 </div>
 
 
@@ -601,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069585.jpg" />
 </div>
 
 
@@ -627,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069584.jpg" />
 </div>
 
 
@@ -653,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069583.jpg" />
 </div>
 
 
@@ -679,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069582.jpg" />
 </div>
 
 
@@ -690,6 +664,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5EAACDD06C51805BB3A6BCF2C789874B74F0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871327   (1069581) от 
+
+Fight Life Vanguard (2026) [Ru/Multi] (1.2.0.655) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в путешествие вместе с некогда могущественным и щедрым, а теперь забытым богом, чья энергия постепенно исчезает из мира. Преданный своим человеческим учеником, который решил стать новым божеством, пожертвовав своим учителем, Божественный Дух сначала не доверяет человечеству, но затем становится свидетелем их храбрости в борьбе с тьмой. Перед тем как отправиться (   Читать дальше...   )Тип издания: RepackРазработчик: StartImpulse, Two Cakes StudioЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F352977157ACE381C70DB9E0A5212B79A6EC98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

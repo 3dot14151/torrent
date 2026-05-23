@@ -1,55 +1,3 @@
-###  Публикация: 1865680   (1065611) от 16.04.2026
-
-4K Downloader 6.3.2 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD. Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простая (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08591C3D977B3856C34B6E68E0CFF94F7752E96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865682   (1065610) от 16.04.2026
-
-Any Video Downloader Pro 10.3.2 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Any Video Downloader Pro - это приложение для Windows, помогающее скачивать видео с YouTube, Facebook, TikTok и тысяч других видеохостингов. Оно ускоряет загрузку до 5 раз. В программе есть возможность конвертировать видео и плеер для их просмотра.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF40C86798D33AA0E028F28893944828C7E8630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865703   (1065594) от 17.04.2026
 
 Master PDF Editor 5.9.98 [Multi/Ru]
@@ -58,7 +6,7 @@ Master PDF Editor 5.9.98 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065594.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ File Viewer Plus 6.2.2.120 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065560.jpg" />
 </div>
 
 
@@ -112,7 +60,7 @@ TubeDownload Pro 7.3.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065559.jpg" />
 </div>
 
 
@@ -138,7 +86,7 @@ Brave Browser 1.89.137 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065557.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ Reg Organizer 9.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065555.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ Files Inspector Pro 4.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065551.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ InnoExtractor Ultra 11.5.1.178 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065546.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ Bandizip Professional 7.42 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065532.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ Chromium 147.0.7727.102 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065481.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ Winhance 26.04.17 & Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065478.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ TechSmith Camtasia 26.1.0 Build 16321 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065475.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ ColorMania - Color Picker 15.0 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065454.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ Any Video Downloader Pro 10.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065451.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065415.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ Floorp Browser 12.12.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065410.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065407.jpg" />
 </div>
 
 
@@ -482,7 +430,7 @@ FileZilla 3.70.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065405.jpg" />
 </div>
 
 
@@ -508,7 +456,7 @@ Disk Pulse Pro / Server / Ultimate / Enterprise 18.0.16 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065395.jpg" />
 </div>
 
 
@@ -534,7 +482,7 @@ Fan Control V265 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065375.jpg" />
 </div>
 
 
@@ -560,7 +508,7 @@ ChrisPC Win Experience Index 7.26.0412 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065372.jpg" />
 </div>
 
 
@@ -587,7 +535,7 @@ ManicTime Pro 2026.1.2.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065371.jpg" />
 </div>
 
 
@@ -613,7 +561,7 @@ Nero Burning ROM 2026 27.5.0.11 Portable by FC Portables [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065364.jpg" />
 </div>
 
 
@@ -639,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065358.jpg" />
 </div>
 
 
@@ -665,7 +613,7 @@ MediaHuman YouTube Downloader 3.9.19 (1304) RePack (& Portable) by Dodakaedr [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065343.jpg" />
 </div>
 
 
@@ -676,6 +624,58 @@ MediaHuman YouTube Downloader 3.9.19 (1304) RePack (& Portable) by Dodakaedr [Mu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CBD83BACC9D170A43BFD91981DE648819B7EE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865250   (1065339) от 14.04.2026
+
+MassTube Ultra 21.6.0.205 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065339.jpg" />
+</div>
+
+
+###  Подробнее
+
+MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EE295C73D7698F42B8E3A6D7075B3425037BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865251   (1065338) от 14.04.2026
+
+OCCT 17.0.0.b10 Beta Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF70C116C01F1AA33808E1A8F89633B75C0CFF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

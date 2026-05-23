@@ -1,58 +1,3 @@
-###  Публикация: 1869856   (1069262) от 
-
-Hosts File Editor+ 2.5.18 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Hosts File Editor - небольшая бесплатная утилита, которая позволяет легко и просто управлять доступом к веб-сайтам и сетевому трафику путем редактирования host файлов. Пользовательский интерфейс интуитивно понятен и прост в навигации. Присутствует возможность быстро восстановить исходный host файл, если внесенные изменения привели к непредвиденным последствиям. Программа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497C9F6BF76840A44BD7B892B231A3E914EDF561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869857   (1069261) от 
-
-VA - National Pop Dance Music Vol.131 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-001. G.G. - Pipe Down (03:34)
- 002. Razi - Galben (02:07)
- 003. Kandang Music Lab - Rindu Berat (04:58)
- 004. Echo Note - Left On Read (03:55)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BF6F61DA245F79C84FE37B9E334B2A33E8DB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869859   (1069260) от 
 
 FluentCleaner 26.05.02 Portable + Extensions [En]
@@ -61,7 +6,7 @@ FluentCleaner 26.05.02 Portable + Extensions [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069260.jpg" />
 </div>
 
 
@@ -87,7 +32,7 @@ Neil Sedaka - All Time Greatest Hits (1988) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069259.jpg" />
 </div>
 
 
@@ -116,7 +61,7 @@ Trayy 3.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069258.jpg" />
 </div>
 
 
@@ -143,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069257.jpg" />
 </div>
 
 
@@ -169,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069256.jpg" />
 </div>
 
 
@@ -195,7 +140,7 @@ Rosetta Stone: Изучение языков 9.1.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069255.jpg" />
 </div>
 
 
@@ -221,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069254.jpg" />
 </div>
 
 
@@ -247,7 +192,7 @@ GB Architects, Алёна Мишанина | Освой ArchiCAD с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069253.jpg" />
 </div>
 
 
@@ -276,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069252.jpg" />
 </div>
 
 
@@ -302,7 +247,7 @@ Restless Spirit - Restless Spirit (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <St
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069251.jpg" />
 </div>
 
 
@@ -331,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069250.jpg" />
 </div>
 
 
@@ -357,7 +302,7 @@ Simple Audio Sweeper 2.0078.341 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069249.jpg" />
 </div>
 
 
@@ -386,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069248.jpg" />
 </div>
 
 
@@ -412,7 +357,7 @@ QOwnNotes 26.5.8 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069247.jpg" />
 </div>
 
 
@@ -438,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069246.jpg" />
 </div>
 
 
@@ -464,7 +409,7 @@ V.A. - Best Sound of Chill & Lounge 2026 – Summer Edition (2026) [FLAC 24/44.1
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069245.jpg" />
 </div>
 
 
@@ -493,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069244.jpg" />
 </div>
 
 
@@ -521,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069243.jpg" />
 </div>
 
 
@@ -549,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069242.jpg" />
 </div>
 
 
@@ -575,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069241.jpg" />
 </div>
 
 
@@ -601,7 +546,7 @@ Korolova - Tomorrowland Friendship Mix (2026-05-07) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069240.jpg" />
 </div>
 
 
@@ -630,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069239.jpg" />
 </div>
 
 
@@ -659,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069238.jpg" />
 </div>
 
 
@@ -688,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069237.jpg" />
 </div>
 
 
@@ -702,6 +647,61 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9970B7A323213C40A6CB8CB9A4362E01436F8ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870244   (1069236) от 
+
+Александр Афанасьев | Врата Скорби (Книги 1-4) (2025-2026) [MP3, Сергей Ларионов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Врата скорби» Александра Афанасьева — это масштабная альтернативно-историческая сага о мире, где Холодная война между Российской и Британской империями не прекращалась ни на минуту, а середина XX века превратилась в эпоху тайных операций, гонки вооружений, племенных конфликтов и имперской политики. На переднем плане — Аравийский полуостров, маленькие княжества (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Военная фантастика, Военные приключения, Историческая фантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 53:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D26A5FC865FC364BEF0FA15BA866D1766C270A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869553   (1069235) от 
+
+T.H. Express - Love 4 Liberty (1996) [FLAC|Lossless|tracks] <Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Missing In The Rain	3:27
+2		Love 4 Liberty	3:38
+3		Crazy For Love	4:23
+4		Nite Away	4:03(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF1D0E2FAFDDA6D2939FF1BC54024243B90620B
 ```
 
 https://mybot314.ru/tekegram_catalog/

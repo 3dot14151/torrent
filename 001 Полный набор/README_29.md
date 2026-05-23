@@ -1,57 +1,3 @@
-###  Публикация: 1871014   (1069451) от 
-
-PortableApps.com Platform 30.4 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-PortableApps.com Platform - это функциональная платформа для организации портативных программ, которые в последующем не будут нуждаться в  установке в систему, тем самым не будут засорять ее лишним мусором и записями.
-
-Данная программа способна объединить нужные вам программ в одном месте, а после через удобное меню категорий установить распаковать  интересующую. При (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F226B721DEE23D1DD605A8EA26C22FDEE99A91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870988   (1069450) от 
-
-Два капитана (2026) WEBRip [H.264] (сезон 4, серии 1-4 из 4)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Убит сосед Мироновых – крайне неприятный человек, наживший себе кучу врагов. По времени это совпадает с пожаром в доме Кати. Связаны ли эти события? Расследуя прошлое убитого, Катя и Романов выясняют, что несколько лет назад он был присяжным на судебном процессе. Подняв документы, они обнаруживают, что из двенадцати присяжных одиннадцать уже мертвы… Женщина получает (   Читать дальше...   )Производство: Россия / NRG FilmЖанр: детективРежиссер: Денис ЕлеонскийАктеры: Антон Даниленко, Олеся Фаттахова, Валерий Смекалов, Дмитрий Сотниченко, Любовь Германова, Екатерина Седик, Алиса Кот, Константин Новиков, Андрей Добровольский, Илья Крутояров и др.Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D1009669BF33951AA379C718C6DCE343DB116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870976   (1069449) от 
 
 Острова: Дикие лаборатории природы / Islands: Nature's Wild Laboratories (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Pazl Voice
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069449.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069448.jpg" />
 </div>
 
 
@@ -113,7 +59,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069447.jpg" />
 </div>
 
 
@@ -139,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069446.jpg" />
 </div>
 
 
@@ -168,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069445.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ reaConverter Pro 8.0.220 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069444.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069443.jpg" />
 </div>
 
 
@@ -247,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069442.jpg" />
 </div>
 
 
@@ -274,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069439.jpg" />
 </div>
 
 
@@ -300,7 +246,7 @@ Mailbird Premium 3.0.60 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069437.jpg" />
 </div>
 
 
@@ -327,7 +273,7 @@ Kalmuri 4.2.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069436.jpg" />
 </div>
 
 
@@ -355,7 +301,7 @@ Adobe Illustrator 2025 29.8.7.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069435.jpg" />
 </div>
 
 
@@ -382,7 +328,7 @@ WinToUSB Free / Pro / Enterprise 10.8.0.2  [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069434.jpg" />
 </div>
 
 
@@ -408,7 +354,7 @@ Ashampoo WinOptimizer 29.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069433.jpg" />
 </div>
 
 
@@ -434,7 +380,7 @@ Privacy Eraser Pro 6.29.5 Build 5555 RePack (& Portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069432.jpg" />
 </div>
 
 
@@ -461,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069431.jpg" />
 </div>
 
 
@@ -487,7 +433,7 @@ Mailbird Premium 3.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069430.jpg" />
 </div>
 
 
@@ -514,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069429.jpg" />
 </div>
 
 
@@ -540,7 +486,7 @@ DVDFab 13.0.6.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069428.jpg" />
 </div>
 
 
@@ -568,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069427.jpg" />
 </div>
 
 
@@ -594,7 +540,7 @@ WinScript 2.7.0 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069426.jpg" />
 </div>
 
 
@@ -620,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069425.jpg" />
 </div>
 
 
@@ -647,7 +593,7 @@ Heavenfall - Thorn (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069424.jpg" />
 </div>
 
 
@@ -676,7 +622,7 @@ Iridio (2025) [Ru/Multi] (Build 2.000/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069423.jpg" />
 </div>
 
 
@@ -687,6 +633,58 @@ Iridio - это инди-приключенческий экшен-шутер о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D567A3EB92A72D7E9B957125C208B225990D1FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871079   (1069422) от 
+
+SIV (System Information Viewer) 5.87 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069422.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D8455FB5D6F8D04FA7A8ECB9E263ADEE986B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871173   (1069421) от 
+
+Убежище / Shelter (2026) BDRip [AV1/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боец спецотряда MI6 Майкл Мейсон живёт отшельником вместе с псом на одном из небольших уединённых островов Шотландии, скрываясь от своего прошлого. Периодически к нему приплывает на лодке его сослуживец с племянницей Джесси и привозит припасы. Однажды во время шторма лодка переворачивается, дядя девочки погибает, но Майкл успевает спасти Джесси, которая получает (   Читать дальше...   )Производство: Великобритания, США / Black Bear, CineMachine Media WorksЖанр: боевикРежиссер: Рик Роман ВоАктеры: Джейсон Стэйтем, Бодхи Рэй Бретнэк, Билл Найи, Наоми Аки, Селин Бакенс, Дэниэл Мейс, Майкл Шеффер, Анна Крилли, Харриет Уолтер, Евгения КарузоПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB09DB8D97CD87A94B1480F4CDE9F6589F7F7BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

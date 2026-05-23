@@ -1,55 +1,3 @@
-###  Публикация: 1867066   (1066624) от 
-
-Google Chrome 147.0.7727.117 Portable by Cento8 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4595325C0B6A16B95D572FE18F6759FE30C6EF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867067   (1066623) от 
-
-Brave Browser 1.89.143 Portable by Cento8 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303798FD64BC92DFDBF0929815E718BB16D5BF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867071   (1066617) от 
 
 YT Downloader 10.3.8 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -58,7 +6,7 @@ YT Downloader 10.3.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066617.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ MassTube Ultra 21.6.0.206 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066609.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ MassTube Ultra 21.6.0.206 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066608.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Master PDF Editor 5.9.98 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066606.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ AOMEI Backupper Technician Plus 8.3.0 Lite (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066597.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ AOMEI Backupper Technician Plus 8.3.0 Full (Repack & Portable) by elchupacabra [
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066596.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Ventoy 1.1.12 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066584.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ Vivaldi 7.9.3970.59 include standalone [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066571.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ HEU KMS Activator 63.3.4 Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066554.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ Obsidian Ebook Reader Premium 1.1.3 RePack [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066483.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ WinScript 2.4.1 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066478.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ Opera One 130.0.5847.82 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066476.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ AOMEI Backupper Technician Plus 8.3.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066421.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ Syncovery Premium 11.14.7 build 188 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066369.jpg" />
 </div>
 
 
@@ -429,7 +377,7 @@ YT Downloader 10.3.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066348.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ Glary Utilities Pro 6.41.0.45 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066342.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ WinTools.net 26.4.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066338.jpg" />
 </div>
 
 
@@ -507,7 +455,7 @@ Glary Disk Cleaner 6.0.1.44 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066337.jpg" />
 </div>
 
 
@@ -533,7 +481,7 @@ MediaHuman YouTube Downloader 3.9.19 (1304) (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066335.jpg" />
 </div>
 
 
@@ -559,7 +507,7 @@ WinTools.net Premium 26.4.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066331.jpg" />
 </div>
 
 
@@ -585,7 +533,7 @@ MyLanViewer 6.7.9 Enterprise + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066326.jpg" />
 </div>
 
 
@@ -611,7 +559,7 @@ v2rayN 7.20.4 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066322.jpg" />
 </div>
 
 
@@ -637,7 +585,7 @@ Revo Registry Cleaner Pro 2.1.2 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066320.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ AlbusBit NTFS Permissions Auditor Pro 26.4.17 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066242.jpg" />
 </div>
 
 
@@ -674,6 +622,58 @@ NTFS Permissions Auditor сканирует весь файловый серве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA1DF54E266FF9A0020FBDB64C6AF292C3E690E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866817   (1066240) от 21.04.2026
+
+Prevent Restore 120 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда вы удаляете файл или папку (или очищаете корзину), они просто помечаются как удаленные и исчезают из списка в проводнике Windows. Но содержимое удаленных файлов все еще существует на диске и его можно легко восстановить в течение многих лет. На вашем компьютере могут быть тысячи уже удаленных файлов, содержимое которых все еще находится на вашем диске. Подумайте, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F936D0D6344413891308C4F063A3FEC4F90C9947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866703   (1066229) от 21.04.2026
+
+Rufus 4.14 (Build 2372) Beta [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9887DB7C625081473DEB4FA34088112EE40EBC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

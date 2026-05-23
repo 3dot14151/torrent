@@ -6,7 +6,7 @@ YT Geek YTDL 12.3.8 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069537.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ QontrolPanel 1.15.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069536.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Internet Download Manager 6.42 Build 64 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069517.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Free Download Manager 6.34.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069509.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Opera One 131.0.5877.55 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069501.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Opera GX 131.0.5877.57 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069498.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Macro Commander Pro+ 2.8.6 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069496.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ NetLimiter 5.3.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069493.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ QR-Code Creator 7.6.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069488.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Joplin 3.6.13 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069486.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Brave Browser 1.90.122 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069485.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Screenpresso Pro 2.2.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069483.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tower 12.1.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069474.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069455.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PortableApps.com Platform 30.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069451.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mailbird Premium 3.0.60 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069437.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kalmuri 4.2.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069436.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ashampoo WinOptimizer 29.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069433.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Privacy Eraser Pro 6.29.5 Build 5555 RePack (& Portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069432.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mailbird Premium 3.0.58 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069430.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ DVDFab 13.0.6.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069428.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ WinScript 2.7.0 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069426.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ SIV (System Information Viewer) 5.87 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069422.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ HFS: HTTP File Server 3.1.5 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069410.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Hekasoft Backup & Restore 1.1.0 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069405.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Password Tech 3.6.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069404.jpg" />
 </div>
 
 

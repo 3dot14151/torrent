@@ -1,82 +1,3 @@
-###  Публикация: 1864897   (1064995) от 12.04.2026
-
-Geekbench 6.7.0 Pro RePack (& Portable) by elchupacabra [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Geekbench - кроссплатформенная программа для проведения тестов производительности процессора. Приложение может быть установлено без особых хлопот на вашем компьютере и вы можете начать тестирование возможностей вашего процессора и всех компонентов системы.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EC19B3A03E253317583FC75DFFCBA20E03FA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864913   (1064980) от 12.04.2026
-
-Wondershare PDFelement Pro 12.1.16.4155 Portable by 7997 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A879DAB50D5A3FCC18627706DE8B11E6F57BF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864926   (1064975) от 12.04.2026
-
-TweakNow WinSecret Plus! 9.0.0 RePack (& Portable) by elchupacabra [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
-Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624BF4ED5DC2EFD4F247AA35D2C216B05D36D950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864939   (1064973) от 12.04.2026
 
 WindowTop Pro 5.31.7 [Multi/Ru]
@@ -85,7 +6,7 @@ WindowTop Pro 5.31.7 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064973.jpg" />
 </div>
 
 
@@ -113,7 +34,7 @@ PrivaZer Pro 4.0.120.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064972.jpg" />
 </div>
 
 
@@ -139,7 +60,7 @@ NTFS Permissions Reporter Enterprise 5.2.679 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064969.jpg" />
 </div>
 
 
@@ -167,7 +88,7 @@ Filmex 3.0 beta 1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064927.jpg" />
 </div>
 
 
@@ -195,7 +116,7 @@ MAX Desktop 26.12.0 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064916.jpg" />
 </div>
 
 
@@ -221,7 +142,7 @@ Kataloger 2026.61 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064914.jpg" />
 </div>
 
 
@@ -247,7 +168,7 @@ Fast Video Downloader 4.0.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064898.jpg" />
 </div>
 
 
@@ -273,7 +194,7 @@ Run-Command 6.36 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064892.jpg" />
 </div>
 
 
@@ -299,7 +220,7 @@ MediaHuman YouTube Downloader 3.9.19 (1204) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064876.jpg" />
 </div>
 
 
@@ -325,7 +246,7 @@ Fast Screen Recorder 2.1.0.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064866.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ Process Lasso Pro 18.0.0.68 (& Portable) by TryRooM [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064863.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ IObit Smart Defrag Pro 11.3.0.476 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064852.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ IObit Smart Defrag Pro 11.3.0.476 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064848.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ VX Search Home / Pro / Ultimate / Server / Enterprise Editions 18.0.12 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064847.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ Mullvad Browser 15.0.9 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064817.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ Process Explorer 17.11 RePack by druc [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064808.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ AIDA64 Extreme Edition 8.25.8223 Beta Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064804.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ Wondershare PDFelement Pro 12.1.15.4153 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064786.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ Adobe Acrobat Pro 2026.001.21411 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064778.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ Adobe Acrobat Pro 2026.001.21411 (x86|x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064774.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ TweakNow WinSecret Plus! 9.0.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064742.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ R-Studio Network 9.5 Build 191742 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064738.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ UltraSearch Professional 4.9.1.1204 RePack (& Portable) by elchupacabra [Multi/R
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064736.jpg" />
 </div>
 
 
@@ -675,6 +596,84 @@ UltraSearch Professional находит файлы и папки на локал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F136AF5C9F3890B05C80FC5DFACF9EEF36AE3AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864507   (1064731) от 
+
+HopToDesk 1.45.20.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064731.jpg" />
+</div>
+
+
+###  Подробнее
+
+HopToDesk - это бесплатный инструмент для удаленного управления и демонстрации экрана. Легко выполняйте совместное использование экрана, удаленную помощь, передачу файлов и чат с удаленным коллегой.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0885BB137F9C404727AEAA5B1DB7C2BBB628B60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864528   (1064727) от 
+
+Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.3.7 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064727.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C895A7E7A87ED1560E6E7FFF5A39A06FD8311394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864537   (1064726) от 
+
+FileZilla 3.70.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064726.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileZilla - популярный кроссплатформенный FTP клиент для Windows, поддерживает протоколы FTP, FTPS и SFTP, а также включает множество дополнительных функций и параметров передачи данных. Удобный двухпанельный интерфейс позволяет легко загружать и скачивать файлы с удалённого сервера. Дополнительно, FileZilla позволяет искать файлы на FTP сервере, сравнивать каталоги (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B91EB17B076904188A50FA0C04F73216B49091F
 ```
 
 https://mybot314.ru/tekegram_catalog/

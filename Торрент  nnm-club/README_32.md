@@ -1,59 +1,3 @@
-###  Публикация: 1871241   (1069368) от 
-
-Любовь с того света / L'Ame ideale / The Ideal Soul (2025) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Сорокалетняя Эльза давно смирилась с одиночеством. Отношения не складываются из-за её пугающего дара видеть призраков. Однако знакомство с обаятельным Оскаром пробуждает в ней угасшую надежду и заставляет поверить в то, что некоторые истории любви не умирают.Производство: Франция / Les Films entre 2 et 4, Gaumont, TF1 Films Production, TF1Жанр: драма, мелодрама, комедияРежиссер: Алис ВьяльАктеры: Джонатан Коэн, Магали Лепин Блондо, Флоранс Янас, Жан-Кристоф Фолли, Анн Бенуа, Софьян Герраб, Афида Тахри, Эрик Наггар, Нина Абутаджедин, Франсуа КретонПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: русские (full - AI), французские (full, SDH)Продолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31373F586FCD509DA13FCC497908AECB07A1BFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870652   (1069367) от 
-
-Daita (Daitah Itoh) - EUPHONY (2003) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
-</div>
-
-
-###  Подробнее
-
-Японский рок гитарист Daita (Daitah Itoh) родился в районе Токио в 1971 году.
-DVD диск Euphony издан в 2003 году и состоит из музыкальных произведений автора. Манера игры - один из столпов японского гитарного рока чем-то напоминает Joe Satriani времен Flying In A Blue Dream, но вот окружение… В нем слышно и электронную музыку, и металл, и даже классическую музыку, (   Читать дальше...   )1. Breath of the Sea
-2. Earth Beat
-3. Suna no Shiro
-4. Zenith(   Читать дальше...   )Производство: ЯпонияЖанр: RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0A0564FD19642B857DB91C82A730AE7F9F0282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871242   (1069366) от 
 
 Пропавшая без вести / M.I.A. (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) RuDub
@@ -62,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069366.jpg" />
 </div>
 
 
@@ -88,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069365.jpg" />
 </div>
 
 
@@ -114,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>handmade * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069364.jpg" />
 </div>
 
 
@@ -140,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069363.jpg" />
 </div>
 
 
@@ -166,7 +110,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.8.2.0 RePack (& Portable) by Do
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069362.jpg" />
 </div>
 
 
@@ -192,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069361.jpg" />
 </div>
 
 
@@ -218,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069360.jpg" />
 </div>
 
 
@@ -244,7 +188,7 @@ Perfectly Clear WorkBench 5.1.0.3209 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069359.jpg" />
 </div>
 
 
@@ -271,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069358.jpg" />
 </div>
 
 
@@ -300,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069357.jpg" />
 </div>
 
 
@@ -326,7 +270,7 @@ TweakNow WinSecret Plus! 9.3.6 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069356.jpg" />
 </div>
 
 
@@ -353,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069355.jpg" />
 </div>
 
 
@@ -379,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069353.jpg" />
 </div>
 
 
@@ -406,7 +350,7 @@ VueScan Pro 9.8.54 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069352.jpg" />
 </div>
 
 
@@ -432,7 +376,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Repack Let'sРlay [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069351.jpg" />
 </div>
 
 
@@ -458,7 +402,7 @@ PRAGMATA (2026) [Ru/Multi] (Build 22357085/dlc) Scene voices38 [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069350.jpg" />
 </div>
 
 
@@ -484,7 +428,7 @@ VA - Дискотека 2026 Dance Club Vol. 232 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069348.jpg" />
 </div>
 
 
@@ -513,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069347.jpg" />
 </div>
 
 
@@ -539,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069346.jpg" />
 </div>
 
 
@@ -565,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069345.jpg" />
 </div>
 
 
@@ -591,7 +535,7 @@ Level One, Николай Маевский | Шахматы для каждог�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069344.jpg" />
 </div>
 
 
@@ -617,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069343.jpg" />
 </div>
 
 
@@ -643,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069342.jpg" />
 </div>
 
 
@@ -670,7 +614,7 @@ Automatic PDF Processor 2.1.9 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007/" />
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069341.jpg" />
 </div>
 
 
@@ -681,6 +625,58 @@ Automatic PDF Processor 2.1.9 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E8C18FA2F38CE6822D2A775CFCF67CAB7909479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871083   (1069340) от 
+
+Сущность / The Thing with Feathers (2025) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069340.jpg" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает об иллюстраторе, который после внезапной смерти жены остается один с двумя сыновьями. В процессе переживания горя в их доме появляется таинственный гость — гигантский антропоморфный Ворон. Существо становится для семьи одновременно и мучителем, и своеобразным терапевтом, помогая прожить утрату и обрести новый смысл жизни.Производство: Великобритания / Align, Film Four Ltd., Film i VästЖанр: ужасы, драмаРежиссер: Дилан СаузернАктеры: Бенедикт Камбербэтч, Дэвид Тьюлис, Сэм Спруэлл, Джесси Кейв, Лео Билл, Винетт Робинсон, Гарри Купер, Макс Портер, Тим Плестер, Адам БейзилПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские (forced hardsub)Продолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4256F0C0B9F110DD31AC0DBB9E59443D51C338AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871084   (1069339) от 
+
+Моя собака – космонавт (2026) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069339.jpg" />
+</div>
+
+
+###  Подробнее
+
+1960 год. В городке у космодрома Байконур, где каждый запуск ракеты озаряет небо мечтами, живёт десятилетний Миша — мальчик со светлой головой, полной космических фантазий. В свой день рождения Миша находит собаку Белку, которая предопределит не только его судьбу, но и напишет новую страницу в истории освоения космоса.Производство: Россия / Централ Партнершип, Инстанция, ZOOM ProductionЖанр: семейный, приключения, комедияРежиссер: Михаил МорсковАктеры: Дмитрий Калихов, Антонина Бойко, Кирилл Зайцев, Ольга Лерман, Павел Ворожцов, Даниил Воробьев, Соня Присс, Степан Девонин, Игорь Коровин, Никита КонкинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5D0949BD0C1B61D6436A1FC3A7AEAA34A6C88A
 ```
 
 https://mybot314.ru/tekegram_catalog/
